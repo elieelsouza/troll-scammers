@@ -3700,4 +3700,3535 @@ black) Oh, that's funny. Oh. Oh. I can't
 breathe. I can't breathe.
 
 THE END
+
+
+E agora, vamos para o Bares da Esperançaaaaa.. uhullllll
+
+
+"BAR ESPERANÇA, O ÚLTIMO QUE FECHA" OU
+NÃO SE PREOCUPE, NADA VAI DAR CERTO !
+Roteiro cinematográfico de:
+Armando Costa
+Denise Bandeira
+Euclides Marinho
+Hugo Carvana
+e
+Martha Alencar
+SEQÜÊNCIA 1 - ABERTURA - BAR ESPERANÇA - EXT. NOITE
+Na calçada defronte ao Bar Esperança (O Último que Fecha) pessoas e
+grupos de pessoas vão entrando nesse bar. Essas pessoas são
+personagens de nossa história: Ivan Guerra, Nina Saraiva, Valfrido
+Salvador, Galocha, Tuca Martins, Cabelinho e por último Zeca e Ana
+Moreno.
+Durante esta seqüência serão mostrados os letreiros iniciais. O último
+letreiro dos créditos coincidirá com a entrada de Zeca e Ana Moreno no
+bar.
+SEQÜÊNCIA 2 - BAR ESPERANÇA - INTERIOR - NOITE
+Esporro infernal. Cenário exótico onde vivem os personagens desse
+louco-filme: músicos, cantores, compositores, pintores, artistas,
+jornalistas, tipos bizarros espalhados por várias mesas - tudo isso
+sob o comando da dona do bar, Dona Esperança, que do interior de um
+balcão - por trás de uma máquina registradora - comanda todo aquele
+universo. Zeca e Ana Moreno, que acabaram de entrar, cumprimentam
+alegres as pessoas e se encaminham para uma mesa. Na passagem cruzam
+com Prepúcio, o garçom, que vem vindo com uma bandeja cheia de chope
+numa incrível demonstração de equilíbrio. Na passagem da bandeja por
+sobre as cabeças dos freqüentadores, Zeca rouba dois copos de chope e
+sai rindo com Ana Moreno. Prepúcio protesta aos berros:
+PREPÚCIO Ei! Esse chope tem dono, porra!
+De outra mesa alguém grita:
+- Prepúcio! Meu chope!
+Conseguindo outro milagre de equilíbrio, Prepúcio vira-se para os
+fundos do bar e grita:
+PREPÚCIO Calma que eu sou um só!
+Numa outra mesa estão sentados Ivan Guerra e Valfrido Salvador. Zeca
+senta-se com seu chope enquanto Ana Moreno, de pé, conversa com uma
+amiga. Ela chama atenção. Pessoas olham e fazem comentários. Na mesa,
+Valfrido Salvador e Ivan estão em meio a uma discussão.
+VALFRIDO Tá vendo, Zeca? A bebida está fazendo ela ficar
+cada vez mais idiota.
+2
+ZECA Não me mete nessa, não quero saber. Tou
+acabando de chegar (cumprimenta alguém em outra
+mesa) Oi!
+IVAN (Visivelmente embriagado) Ah, eu que sou
+idiota! Você é que está organizando uma
+vernissage no mictório desta infecta taberna
+pra mostrar esta merda que você chama de arte e
+que só serve pra te promover e eu é que sou
+idiota. Ah, é? Obrigado...
+Valfrido se levanta da mesa, puto da vida, enquanto Ivan continua
+resmungando bêbado na mesa. Zeca, desligado do que acontecia, fica
+observando carinhosamente Ana que está em pé, conversando com amigas.
+Ana, ao sentir o olhar de Zeca, olha pra ele com carinho. Zeca mandalhe um beijo e sussurra:
+ZECA (Baixinho) Eu te amo...
+Dentro do balcão do bar, microfone na mão, Valfrido anuncia a todos a
+realização de sua próxima exposição.
+VALFRIDO Olha aí, turma! No próximo dia vinte e seis
+será realizada, no mictório do bar Esperança
+uma grande festa-show do grande artista
+plástico brasileiro Valfrido Salvador - eu
+mesmo! O Salvador Daqui!
+O bar inteiro reage assobiando e vaiando. Na porta do toalete feminino
+de bar, um grupo de mulheres - entre elas Nina - protesta gritando
+para Dona Esperança:
+NINA Como é que é, Dona Esperança? Um bar deste
+tamanho e um banheirinho pequenininho: Assim
+não é possível! Olha o tamanho da fila!
+Dona Esperança nem responde, perdida na confusão do bar. Galocha
+aproveita e se aproxima das mulheres na fila no banheiro, dizendo:
+GALOCHA Olha aí, neném! Chegou o Galocha trazendo a
+felicidade e a solução para os problemas das
+mulheres. Quer ver?
+Enquanto vai tirando de uma das bolsas um envelope, continua falando:
+3
+GALOCHA Um dispositivo simples, em cartolina
+esterilizada, facilmente descartável e
+higiênico (consegue tirar do envelope um
+cartucho de cartolina rosa e exibe vitorioso
+para as moças). Eis aqui a salvação das
+biriteiras da madrugada: o moderno condutor de
+urina descartável!
+As mulheres caem na gargalhada e examinam o estranho objeto. Nina
+protesta:
+NINA Ô babaca, o problema não é fazer xixi de pé ou
+sentado. É espaço, sacou?
+GALOCHA Aí é que a donzela se engana! Se você já pode
+mijar em pé, porque não no banheiro dos homens,
+hein? hein? (Empolgado, começa um discurso) Por
+que não? Com a ajuda desse simples objeto as
+mulheres vão conseguir igualdade de condições
+com os homens no lugar onde eles menos esperam.
+No mictório!
+As mulheres se divertem com o discurso de Galocha: umas dizem que não
+têm coragem, outras riem nervosas mas Nina topa e compra uma peça.
+NINA Me dá isso aí. Eu tenho coragem!
+Galocha recebe sua grana e sai pelo interior do bar apregoando suas
+mercadorias. O bar fervilha. Aqui e ali casais namorando. Vai-e-vem no
+corredor dos banheiros. Alguém canta de porre em alguma mesa um sambacanção qualquer e por isso muitos vaiam. Agito total. Dentro do
+balcão, por trás de caixa registradora, D. Esperança, feliz, dá ordens
+a garçons, comandando todo o espetáculo. Ana e Tuca Martins caminham
+entre as mesas carregando cada um dois copos de chope enquanto
+conversam:
+ANA Espetáculo pra índio? Explica isso direito.
+TUCA Eu ainda não sei. A Nina é que está
+organizando. Tem alguma coisa com tribo de
+índio que vai ser expulsa das suas terras.
+(Muda de tom) Se der certo eu vou, Ana. Não dá
+mais pra segurar - a barra tá muito pesada. Há
+dois meses não pinta trabalho...
+ANA (Interrompendo) Eu sei, Tuca. Tá pesada pra
+todo mundo, mas não é se escondendo no mato que
+4
+você vai conseguir trabalho - e depois eu não
+acredito muito nas idéias da Nina, sei lá...
+A caminhada dos dois é interrompida por um pilantra, que com cara de
+galã de Cascadura, pergunta a Ana:
+GALÃ Como é que uma moça tão bonita como você pode
+ser tão má naquela novela? Jura que não vai
+entregar aquela carta!
+ANA (Desvencilhando-se do chato e continuando a
+conversar com Tuca) Não sei companheiro... Tô
+por fora... Depois a gente conversa, tá? (Virase pra Tuca) E o filme que você falou que ia
+pintar?
+TUCA Pintou, mas é só um dia de filmagem... grana
+curta ... Agora, o pior você não sabe...
+ANA O que?
+TUCA O filme é um pornô e eu vou ter que fazer uma
+cena de sexo explícito! (Os dois caem na
+gargalhada) O filme se chama "A Viúva do SadoMasoquista" e adivinha quem é a atriz?
+ANA (Excitada) Quem?
+TUCA Áurea Celeste! A primeira dama da pornografia...
+Já que você virou uma estrela de TV e abandonou
+os amigos (fala representando canhestramente) eu
+me jogo nos braços da Áurea Celeste... (ri)
+ANA (Também rindo) Vai à merda, Tuca!
+TUCA (Saindo com os copos) Tchau, Ana... Te vejo
+daqui a pouco.
+ANA Tchau, Tuca!
+No meio do bar, Passarinho protesta aos berros. Está, como sempre, de
+porre.
+PASSARINHO Absurdo! Eu não freqüento mais essa estalagem.
+Acabei de encontrar uma mulher dentro do
+mictório tentando mijar com um negócio meio
+5
+esquisito. Expulsei ela de lá... ah, expulsei
+mesmo! (Grita mais alto) Vamos parar com essas
+liberdades aí!
+Zeca continua sentado na mesa de Ivan, visivelmente de porre. Junto
+com ela está Cabelinho, também de porre. Ana acabou de sentar.
+ZECA Ivan, uma vaga prum escritor idiota naquele teu
+pasquim?
+IVAN Não, o último idiota que eles contrataram fui
+eu... (Ri) Porque? Foi demitido? Claro! (Fala
+para os outros) Nem a televisão agüentou mais
+as besteiras que ele escreve todo dia pra
+entorpecer a cabecinha da classe média!
+Ana percebendo que aquilo podia ser o começo de uma discussão,
+interrompe para desanuviar o ambiente.
+ANA Zeca, quer jantar?
+ZECA Não. Não quero jantar... (Continua) Estava só
+esperando ele acabar o discurso dele pra dizer
+que não fui demitido não, entendeu? (Fala para
+si mesmo) O que eu não agüento é ficar o dia
+inteiro trancado numa sala e tomando cafezinho
+feito louco e no fim nunca se resolve nada: é
+sempre o mesmo blá-blá-blá. Muito cacique e
+pouco índio, seu Cabelinho, esse é que é o
+problema! Às vezes dá vontade de voltar a
+escrever cartas de amor, tá sabendo?
+CABELINHO Mas mesmo assim eu topo uma troca. Eu fico com
+o teu trabalho e você fica com a minha mulher,
+topa?
+IVAN Êpa - é mau negócio pro Zeca, Cabelinho! A tua
+mulher é chave-de-cadeia.
+ANA E eu, como é que fico nessa troca, hein,
+Cabelinho?
+ZECA (Para Cabelinho) Obrigado, mas eu não topo...
+Fazer negócio com a tua mulher é fazer negócio
+com chapéu... ou leva na cabeça ou sai
+embrulhado! (Todos riem) Além disso eu estou
+6
+satisfeito com a minha estrela de televisão
+aqui ... (Zeca tenta abraçar Ana)
+Ana, percebendo ironia e amargura nas palavras de Zeca, tenta cortar o
+papo.
+ANA Zeca, é melhor a gente ir embora. Eu gravo
+amanhã cedo.
+Prepúcio está passando e Zeca aproveita e chama o garçom.
+ZECA Prepúcio, limpa essa mesa - lava esses copos e
+traz outra rodada. (Ana não gosta)
+PREPÚCIO Falou! (Vai tirando os copos) O que é que nós
+vemos beber?
+ZECA Nós não. Eu vou beber e você vai me servir!
+PREPÚCIO Que é isso, Xará? Tá perdendo a elegância?
+Cuida dos teus campos energéticos, rapaz!
+Equilibra as tuas energias senão vais virar uma
+molécula morta, meu irmão (Todos riem na mesa).
+Qual vai ser? Chope pra todo mundo?
+Todos concordam. Cabelinho fala:
+CABELINHO Ô molécula! Aproveita e traz junto com o chope
+umas pipocas embrulhadas num saquinho...
+Prepúcio sai.
+ANA Pra que essa pipoca embrulhada, Cabelinho?
+CABELINHO É o seguinte. Todo dia eu chego tarde. Cotinha
+já está dormindo. Eu tenho que entrar no maior
+silêncio pra ela não acordar, senão já viu o
+esporro, né? Mas sempre que eu estou chegando
+em casa, o maldito do galo do vizinho começa a
+cantar e acorda Cotinha. Agora não. Eu levo um
+saco de pipoca e dou pro galo enquanto o
+malandro tá lá comendo pipoca eu entro na maior
+tranqüilidade, sacou?
+A gargalhada geral ecoa no bar.
+7
+SEQÜÊNCIA 3 - INTERIOR - DIA - ANTE-SALA DO BABY
+Sala gelada e acrílica típica da chefão da TV. É a sala de espera de
+Baby, o homem que decide tudo na emissora. Zeca entra bem cabreiro. Na
+sala estão a secretária, e três outros autores, colegas de Zeca: dois
+homens e uma mulher. Zeca entra contrafeito, os 3 estão muito juntos
+conversando em voz baixa e não tomam conhecimento de Zeca. Ela sorri
+para a secretária que lhe devolve um sorriso gélido e volta a mexer em
+seus papéis. Zeca senta-se na pontinha de uma poltrona afastada, todo
+empinado, tentando parecer que está à vontade. De repente a mulher
+(autora) vira-se e vê Zeca. Dá um grito de alegria, falso, e joga-se
+nos braços de Zeca, beijando-o nas faces numa animação irritante pela
+insinceridade tão clara. É evidente que ela odeia e sente-se ameaçada
+por Zeca.
+MULHER Zeca. meu amor! Você está maravilhoso! Li teu
+texto! Chorei! Juro que chorei.
+ZECA Mas é uma comédia, benzinho...
+MULHER Eu sei. Mas o que me comoveu foi a tua garra. É
+gozadíssimo mas é emocionante. Você é um grande
+dramaturgo!
+O outro autor chega-se a Zeca. Também é falso e super-repressante uma
+amizade, calor e carinho inteiramente mentirosos. Abraça Zeca, beijalhe a face:
+AUTOR 2 Grande texto, Zeca! Grande texto!
+ZECA Puxa, muito obrigado! E aí? Estão esperando o
+Homem há muito tempo?
+AUTOR 3 Tô esperando há 40 minutos.
+ZECA É... Pra mim o Homem resolve hoje. Se ele não
+gostar do texto que eu entreguei, não sei
+não...tôfu...
+AUTOR 2 Olha, Zeca, vou te dizer. Se o Homem não quiser
+renovar o meu contrato eu tô cagando, sabe? Não
+preciso de televisão pra viver... Tô cagando...
+MULHER Eu também. Sempre vivi de minhas peças de
+teatro, meus livros. Tô cagando pra televisão.
+8
+ZECA Sei não... Com mulher e filhos eu não posso
+cagar muito assim não...
+Entra Tomás, assessor de Baby.
+TODOS (Se levantam) Oi, como é que é? Tudo em cima,
+meu amor? Você está maravilhoso! Que porra
+ontem, hein? O Homem tá aí? (A mulher beija
+Tomás nas faces com sua habitual alegria
+mentirosa. Os autores, do mesmo modo hipócrita,
+dão-lhe tapinhas machos e "íntimos" nas costas
+tipo "coméquié, bicho", etc)
+TOMÁS O Baby não pode receber vocês hoje.
+Todos tentam reclamar, Tomás corta.
+TOMÁS Tô sabendo, mas o Baby teve que tomar um avião
+pra Brasília agora mesmo.
+ZECA E o nosso programa, como é que fica?
+TOMÁS Não fica. O Baby ainda acha teu texto muito
+fraco e quer que você reescreva pra amanhã.
+ZECA Amanhã? Assim não dá! Tudo em cima da hora!
+MULHER Calma, Zeca, vai devagar...
+ZECA Devagar porra nenhuma! Eu já escrevi esse texto
+quatro vezes. Não sei mais o que baby quer!
+(Zeca acende um cigarro)
+TOMÁS Você vai fumar aqui?
+ZECA Claro! O Baby não está! Quando o gato sai os
+ratos caem na gandaia, né? Ratos!
+AUTOR 2 Manera, Zeca, manera ...
+ZECA Não dá para manerar. Eu só posso escrever esse
+programa se o Baby sentar na minha frente e me
+encomendar: "Eu quero isso, isso e aquilo".
+Adivinhar não é a minha.
+9
+TOMÁS Vocês são pagos pra terem idéias a inventar.
+ZECA Mal pagos. E vocês querem que a gente invente,
+desenvolva, escreva de um dia pro outro. Daí a
+gente trabalha 24 horas por dia pra vocês.
+MULHER Esfria a cabeça, Zeca. Cuidado, eu te amo...
+Mas na verdade o teu texto ainda não estava tão
+bom, não ...
+ZECA Pomba! Você acabou de dizer que adorou o texto!
+AUTOR 2 É bom rever um pouco, melhorar ...
+ZECA Você também acha, ó Judas?
+TOMÁS Tem que reescrever, claro!
+ZECA Se você me disser o que você quer, eu rescrevo.
+Mas aqui ninguém sabe querer. Nem o Baby. Fica
+você de garoto de recados! Não adianta eu falar
+com um gravador, você é um gravador. O Baby
+fala no teu ouvido (Faz gesto de falar no
+ouvido dele) e você grava no teu
+computadorzinho (gasto na cuca de Tomás) e
+despeja o recadinho no meu ouvidinho de pinico.
+TOMÁS Garoto de recados, é? Pois eu tenho um recado
+pra você, Zeca. O Baby leu o teu texto e disse:
+"Isso aqui é um cocô. E cuspiu no teu texto."
+ZECA Cuspiu?!! Mentira tua, ó gravador ambulante!
+TOMÁS Cuspiu! Assim! (Cospe no texto)
+ZECA Cuspiu? Assim? (Cospe no texto) Devia ter
+cuspido assim! (Cospe num aparelho de TV
+ligado) Você é um cocô, meu texto é um cocô, eu
+sou um cocô, aliás, como diz um amigo meu, na
+cidade em que você nasceu todo mundo era um
+cocô igual a você ou alguém escapou de ser
+cocô?
+TOMÁS Olha a criancice, Zeca! (Ameaçador)
+10
+ZECA Sou criança, sim! Mas você é pior, é um robô.
+Tchau, robô, não trabalho mais aqui. (Rasga o
+texto) Passar bem! (Sai. Todos perplexos,
+fumando desesperadamente.)
+SEQÜÊNCIA 4 - ESTÚDIO DE GRAVAÇÃO - INTERIOR - DIA
+Abre em big close de Ana Moreno. Ela está muito maquiada.
+ANA "Você é uma medíocre, sua mãe é uma medíocre,
+essa família é um aglomerado de medíocres
+dominados como fantoches. E o pior: todos
+metidos a insubstituíveis."
+A câmara se afasta lentamente e mostra Ana num estúdio contracenando
+com outra atriz. Câmera da TV, microfones, equipe, tudo as revela.
+ATRIZ "Mas Berenice, você não pode entregar aquela
+carta! Vai revelar tudo. Nosso mundo vai ruir.
+Vai ser um horror pra todo mundo, inclusive
+para você."
+ANA "Eu quero que tudo vire ruínas. A verdade é o
+fogo que vai incendiar e purificar tudo. Eu vou
+entregar a carta!"
+DIRETOR (Entrando no set) Ótima. Ana, olha mais pra sua
+direita que a câmera te pega melhor. Bom, então
+vamos gravar!
+Azáfama no estúdio. Preparativos técnicos para gravar. Ana vai a uma
+mesa posta em cena cheia de iguarias. Vai pegar um croquetezinho.
+DIRETOR Pôxa, Ana, tá cansada de saber que não pode
+comer a comida da cena que esculhamba a
+continuidade!
+ANA Só um croquetezinho ninguém vai notar... A
+gente nem teve tempo de almoçar hoje! Tô até
+com dor de cabeça.
+Entra Zeca pelo estúdio, enlouquecido.
+ZECA Ana, eu vou me mandar, não sou mais um capacho!
+Todo mundo aqui é capachildo, neurótico,
+11
+ulcerado! (Para o diretor) O câncer da
+capachildice te come por dentro! Eu sou livre!
+(Rasga os textos que tem na mão, joga tudo pra
+cima - uma chuva de papéis - e sai correndo).
+ANA Zeca! Zeca! Calma, vem cá!
+Ela tenta correr atrás de Zeca, o diretor a impede.
+DIRETOR Você tá pensando que vai aonde?
+ANA Meu marido. Nunca vi ele assim. Teve uma crise.
+DIRETOR Estamos todos em crise eterna. Não vai sair
+não! (impede Ana que tenta sair).
+ANA Mas o Zeca precisa de mim! Não está vendo? Ele
+é teu amigo também. Precisa de ajuda agora!
+DIRETOR Em casa você acalma ele. Agora volta pro
+cenário que eu tenho que gravar essa cena. Isso
+aqui é trabalho, tem hora marcada! Tem que ser
+profissional, Ana!
+Close de Ana igual ao início da seqüência.
+ANA (Muito mais dramática, cheia de demônios) "Você
+é um medíocre, seu irmão é um medíocre, essa
+família é um aglomerado de medíocres dominados
+como fantoches. E o pior - todos metidos a
+insubstituíveis!"
+SEQÜÊNCIA 5 - APTO DE ZECA - INTERIOR - DIA
+Abre nas crianças (Yuri, menino, 11 anos e Babita, menina, 9 anos) que
+brigam.
+BABITA Você quebrou o meu disco da Rita Lee!
+YURI Porque você rasgou minha coleção de ecologia
+pra fazer aviãozinho!
+Os dois se embolam, aos tapas. Entra Zeca derrotado. Fecha a porta,
+nem olha para as crianças que agora quebram um vaso. Zeca vai a uma
+gaveta, tira uma pistola de contra-regra, aponta para o ar e dispara -
+12
+BUM! - As crianças param. Pausas. Vêm o pai. Logo explodem na briga de
+novo, correndo para Zeca e queixando-se a ele, aos gritos.
+OS DOIS Ela rasgou meu livro! Ele quebrou minha Rita
+Lee (etc). Zeca derrotado. O telefone toca,
+Zeca procura o fio pelo chão. As crianças atrás
+dele gritando sem parar. Zeca procura até achar
+o telefone no meio da bagunça total.
+ZECA Alô!
+VOZ Escuta aqui, ó, a vaca da tua mulher vai ter
+coragem de entregar aquela carta? Se no
+capítulo de hoje ela mostrar a carta eu vou aí
+e dou um tiro nas fuças dessa maluca, ouviu?!
+ZECA Vaca vá pra ... (O cara desliga. Zeca possesso)
+Desligou...
+As crianças assistem TV e ficam hipnotizadas olhando-a. Aparece cena
+no aparelho de TV. É Ana (Cena diferente da gravada na seqüência 4).
+SEQÜÊNCIA 5-A - CENA DE TV
+ATRIZ "Mas Berenice, como você conseguiu essa carta
+tão nefasta?"
+ANA "Tenho meus mistérios. Não revelo. O que
+interessa é que a carta está aqui! (Mostra)"
+ATRIZ "Pense bem, Berenice, se você mostrar essa
+carta, papai se suicida porque Márcia, sua
+irmã, ficará sabendo que é irmã de Rodolfo e
+portanto não poderá mais casar com ele, a mamãe
+terá uma crise de loucura final ao saber que
+Rodolfo é filho de nosso pai com Ágata, que
+está no hospital com câncer à morte, e papai se
+suicidando nossa fortuna irá toda para Rodolfo,
+filho primogênito que então se casará com
+Celeste, que ele ama, e nós duas ficaremos na
+miséria total. "
+ANA (Gargalhada sardônica e ensandecida) "Ah! Ah!
+Ah! Eu quero é ver o circo pegar fogo, seus
+medíocres!"
+13
+YURI Pô, mamãe tá de megera nessa novela.
+BABITA Tomara que ela entregue a carta pra balançar o
+coreto desses caretões!
+ZECA (No telefone) Diminui essa porcaria de
+televisão Babita! Tô tentando falar aqui! (Ao
+telefone) Alô! Pedro? Escuta, Pedro, eu preciso
+de trabalho agora. Tô desempregado. Se você
+quiser eu escrevo aquelas cartas pra você.
+(Ouve) Tem dez? Mas eu topo! Tá legal. Eu passo
+aí amanhã. Abraço! (Bate o telefone. O som da
+novela sobe altíssimo).
+SEQÜÊNCIA 6 - CALÇADA EM FRENTE, EDIFÍCIO ZECA/ANA - EXTERIOR - NOITE
+O som da novela domina o mundo. Táxi pára. Ana salta carregando
+cabides, roupas, scripts, bolsas enormes atulhadas de bagulhos. Ela
+procura dinheiro, desesperada, nas bolsas.
+CHOFER Não tá achando o dinheiro, dona Ana Moreno?
+Aliás, pensando bem, não precisa pagar, não. Me
+dá um autógrafo seu que minha filha é muito sua
+fã, dona Ana Moreno.
+ANA Espera, vou achar o dinheiro, cacêta!
+CHOFER Aliás, pensando melhor, vou lhe cobrar sim,
+porque a senhora, Dona Berenice, é uma peste de
+gente e vai entregar aquela carta e esculhambar
+a vida de todo mundo na novela e a minha mulher
+vai ficar de mau humor e me encher meu saco.
+Paga e não bufa, Dona Berenice!
+ANA Não me enche, ô cretino!
+Crianças chegam correndo, rodeiam Ana.
+CRIANÇAS Olha a Ana Moreno! Olha a Ana Moreno! É a
+Berenice! Berenice tu só faz tolice! Tasca a
+Berenice! Tasca!
+14
+Ana pega suas coisas que vão caindo pelo caminho e corre para a
+portaria seguida pela molta. Cruza com duas velhinhas que falam alto
+para Ana ouvir.
+VELHA 1 Puxa, é a Ana Moreno...
+VELHA 2 É. Tô vendo. Mas ela é muito velha pessoalmente.
+Pensei que fosse uma jovem. É uma velha sem
+graça, desbotada... Vai desgraçada, entrega a
+carta, peste!
+Ana consegue entrar no edifício e no elevador, um senhor engravatado e
+distintíssimo segura a porta do elevador. Ela agradece e entra.
+15
+SEQÜÊNCIA 7 - INTERIOR DO ELEVADOR - NOITE
+Ana cansada, irritada, esbagaçada e o Senhor Formal no elevador.
+Silencia. Constrangimento. Eles evitam se olhar. (Explorar cena mímica
+de um casal desconhecido em elevador, constrangidos, coisa muito
+comum, identificável pela platéia: pequenos "comportamentos" tais
+como:
+- os dois apertam o botão ao mesmo tempo. Constrangimento de mãos,
+etc.
+- os dois em silêncio, meio ofegantes, evitando se olharem.
+- os dois pigarreiam ao mesmo tempo e se mancam.
+- os dois procuram as respectivas chaves (para fazer alguma coisa) e
+acham ao mesmo tempo. Mais constrangimento.
+- os dois se encaram ao mesmo tempo e desviam o olhar rapidamente.
+- o estômago de um dos dois ronca suavemente de fome e
+constrangimento. O roncador se mexe e se ajeita para evitar outro
+ronco. Os dois fingem não ter ouvido nada. Mais constrangimento.
+- o Senhor começa a olhá-la fixamente, ela de perfil para ele,
+fingindo não perceber.
+SENHOR Desculpe... A senhora não? ...
+ANA Não.
+SENHOR Não, desculpe, mas a senhora não ...
+ANA Não. Não vou entregar carta nenhuma que eu não
+sou de Correios e Telégrafos.
+SENHOR (Invocadíssimo) Ah, não? Mas que carta?? ...
+ANA A carta ... um ás de espadas prum fulano.
+SENHOR (Pausa) Não, desculpe, mas a senhora não me é
+estranha. Eu a conheço de algum lugar. Perdão,
+mas como é mesmo o seu nome?
+ANA Me conhece daqui mesmo. Eu sou a Dama do
+Elevador! (Ela faz cara sexy, levanta a meia e
+mostra as pernas sensualmente. O elevador para
+no andar dela e Ana sai, puta, deixando o
+Senhor muito perplexo e invocado).
+16
+SEQÜÊNCIA 8: APTO DE ZECA/ANA - INTERIOR - NOITE
+O som da novela fortíssimo. Na sala, as crianças e a empregada
+hipnotizadas assistem TV. Voz de Ana e atriz off.
+ATRIZ (OFF) "Você é demoníaca, Berenice."
+ANA (OFF) "Sou. E hoje estou com todos os meus
+demônios funcionando a mil. Estou possuída."
+ATRIZ (OFF) "Berenice, essa simples carta pode
+destruir a vida de todos nós."
+ANA (OFF) "Uma vida como a nossa é melhor que
+estoure logo, se coma a si própria. Nossa
+vidinha mentirosa, esmagada, falsa, hipócrita,
+mutilada, monótona, castrada, é melhor que se
+queime para ver se do fogo nasce algo melhor,
+mais digno."
+Ana entra no apartamento esbaforida, possessa.
+ANA Cadê seu pai? Onde é que esse maluco se meteu?
+Crianças e empregada não respondem, hipnotizadas pela TV.
+ANA Quer me responder?! Cadê o Zeca?!
+Babita volta-se para Ana pondo o dedo sobre os lábios e pede silêncio.
+BABITA Pssiu... (E volta a olhar a TV)
+ANA (Explodindo) Yuri, o Zeca veio pra casa? Já
+chegou? Me responde, Yuri!
+Os três se voltam para Ana, repressivos.
+YURI Não tá vendo que eu tô ocupado?
+Ana, possessa, desliga o aparelho de televisão. Todos reclamam. Ana
+vai para o interior do apartamento.
+YURI Pô, mamãe tá fogo.
+17
+BABITA Ela tá horrível na televisão e horrível aqui.
+Acho que ela pegou alguma doença nessa novela.
+Ana abre portas gritando por Zeca, acaba encontrando-o no banheiro,
+sentado na privada, máquina de escrever no colo e copo de conhaque na
+mão.
+ANA Você enloqueceu?
+ZECA Eu não!! O mundo ...
+ANA Você esculhambou na televisão desde o diretor
+até o contínuo e está despedido.
+ZECA Não. Eu me despedi. Larguei aquela zorra toda.
+ANA Porque, Zeca?!! POR QUE?
+ZECA Chegou ao limite máximo de aporrinhação. Dali
+em diante dá o câncer generalizado.
+ANA Então eu também tenho o direito de explodir.
+Mas eu me controlo, agüento. Sabe como?
+ZECA Não consigo imaginar.
+ANA Porque eu me lembro que tenho um pacto, um
+compromisso com você, com meus filhos, com a
+vida.
+ZECA Eu também. Como você pode ver eu estou aqui.
+Não fugi.
+ANA Ah, é? Aliás o que é que você está fazendo
+sentado na latrina com a máquina de escrever no
+colo e esse conhaque nacional horrível na mão?
+ZECA Trabalhando. Sou um operário da dramaturgia.
+ANA No banheiro? Então tá ...
+ZECA Não me reprime, meu amor! Não me reprime!
+ANA Você que está me reprimindo. No ano passado
+você caiu em crise, resolveu montar tua peça,
+botamos todas as nossas economias, estreou e
+18
+foi um dos mais lindos fracassos do teatro
+brasileiro.
+ZECA Isso! Foi um fracasso maravilhoso. Todo mundo
+que viu a peça adorou, mexeu com as cabeças.
+ANA Todo mundo! Aquelas cinco pessoas que foram ao
+teatro, você quer dizer ... E agora? Você
+abandona o emprego na TV! E as dívidas da peça?
+A gente ainda tem que pagar mais de um milhão!
+E você está escrevendo o que, no banheiro?
+ZECA Cartas de amor. Telefonei pro Pedro - da
+gráfica - e ele já encomendou 20 cartas. Dá pra
+ir segurando até pintar outra coisa.
+ANA Ah, é? Cartas de amor? Operário da dramaturgia,
+é?
+ZECA Isso aqui (Mostra o papel na máquina) é mais
+verdadeiro, arrojado e criativo que todas essas
+novelas soporíferas que você faz na TV. Essas
+cartas têm sangue! Estão vivas!
+ANA Têm! O meu sangue! a minha vida! Porque eu vou
+continuar me matando 24 horas por dia no
+estúdio e você larga o teu emprego e escreve na
+latrina! Você rompeu o teu compromisso comigo.
+Com tudo! Coisa de criança!
+ZECA Essas cartas dão um dinheirinho, porra!
+ANA Não, que o Pedro não paga. Você já sabe disso!
+E eu? Eu também tenho minhas fantasias, sabe?
+ZECA Então realiza tuas fantasias, Ana!
+ANA Não dá. Você tá careca de saber que eu queria
+me desligar durante um ano da TV, fazer um
+trabalho em teatro como esse que o Ricardo me
+chamou ...
+ZECA Porque não faz, pombas?!
+ANA E quem vai batalhar o feijão? As crianças viram
+pivetes assaltando na esquina?
+19
+ZECA Tá me acusando, me reprimindo ...
+ANA Não. Tô denunciando a tua mentira. Você não
+reconhece, mas no fundo se acha melhor do que
+eu. Trabalhar na televisão te envergonha.
+ZECA Acho tevê ótimo. Pode-se jogar muitas idéias,
+discutir com milhões de pessoas. Tevê não é pra
+aprofundar, é pra massificar, tudo bem, já sei.
+ANA Não. Seja sincero. Você não acha TV digna de um
+intelectual.
+ZECA Nesse ponto é igual a qualquer outra profissão.
+Todo mundo trabalhando, morrendo de ódio, mas
+tentando dar umas mudadinhas aqui e ali. Tudo
+cocô, tudo ótimo, tudo igualzinho, tudo certo,
+tudo suicida.
+ANA Só que você é do tipo que sabe que 2+2 são 4 -
+mas você não agüenta, não é?
+ZECA Talvez. Aí às vezes eu quero que 2+2 sejam
+cinco. E daí? Porque 2=2 não pode ser
+2.437.239?
+ANA Daí que isto significa a fome. Desemprego.
+Corte para as crianças no corredor ouvindo tudo.
+BABITA Você ouviu? Eles falaram em fome.
+YURI Da última vez que pintou desemprego a fome aqui
+durou um ano.
+BABITA Acho que a barra vai pesar de novo.
+YURI Vamos executar o Plano Alfa-Um: Abastecimento
+de Emergência! (Saem correndo).
+O casal discute agora no quarto. Ana tira a maquiagem pesada da
+televisão e vai tirando a roupa também.
+ANA Zeca, você está sempre sonhando com alguma
+coisa que não vai acontecer. É como se você
+20
+estivesse esperando eternamente a estréia de
+uma peça. Essa é a nossa diferença. Pra mim a
+peça já estreiou e nós já estamos em cartaz há
+muitos anos.
+ZECA Então não é uma peça boa ... É chata.
+ANA Zeca, ... Eu só tenho medo de não estar
+presente na noite da tua estréia.
+CORTA PARA as duas crianças carregando zilhões de mantimentos da
+cozinha para o quarto deles. Principalmente guloseimas (chocolate,
+batata frita, etc.) Estocam tudo no armário do quarto.
+BABITA Vem aí um longo inverno.
+YURI Os bichos da floresta é que estão certos. O
+negócio é armazenar rango pros dias
+tenebrosos...
+CORTA PARA o quarto dos pais.
+ZECA Discutir com a cabeça quente não adianta. Vamos
+ao bar pra relaxar.
+ANA Não! Não agüento mais aquele bar todo dia!
+Aqueles caras chatos todo dia discutindo
+aquelas mesmas discussões há quinze anos.
+ZECA Só um uisquinho pra esfriar a cuca.
+ANA Não! Eu juro que hoje não vou a porcaria de bar
+nenhum! Não tenho saco, não agüento!
+SEQÜÊNCIA 9 - BAR ESPERANÇA - INT - NOITE
+Silêncio. A seqüência inicia em imagem fechada de Zeca que, com a
+cabeça enterrada nas mãos, contempla arrasada o tempo da mesa e futuca
+um buraco na toalha com o dedo.
+À medida que vai levantando a cabeça, vai entrando na trilha sonora e
+barulho do bar, e quando seus olhos cruzam com os de Ana (que só agora
+é vista) a zoeira chega ao auge. Então numa mesa mais afastada, não a
+de habitual. Encaram-se tristes, cansados. Ela começa a dizer alguma
+coisa que ninguém escuta pois nessa hora está sendo trocado o barril
+de chope cujo chiado característico é seguido por uma espécie de brado
+21
+tradicional do "Esperança" (a ser criada), entoada por quase todos os
+fregueses.
+Insert rápido da troca de barris, detalhe de espuma com pressão ou
+algo do gênero.
+ALGUÉM (OFF) Mais um que morreu. Quem bebeu, bebeu.
+Quem não bebeu se fudeu!
+Zeca não sustenta o olhar acusatório de Ana e disfarça, acenando pro
+garçom.
+ZECA Ô Prepúcio... A patroa tá com sede!
+PREPÚCIO (Se aproximando) Casal quando senta sozinho ou
+tá começando ou tá acabando ... Vê lá, hein,
+gente ...
+O comentário de Prepúcio aumenta o desconforto entre os dois. Zeca
+bate três vezes no pé da mesa.
+PREPÚCIO O de sempre, D. Ana?
+ANA (Concordando) E o balde de gelo, Prepúcio. Sem
+gelo eu não sou ninguém.
+ZECA Pra mim traz aquele teu coquetel nocaute que eu
+hoje estou precisando.
+PREPÚCIO Nocaute ... Era o coquetel preferido do Dr.
+Perdigoto!
+ZECA (Saudoso) Dr. Perdigoto ... Nunca mais, né?
+PREPÚCIO (Saindo) Sumiu. Ninguém sabe. Ninguém viu.
+Ana pega um cigarro e Zeca prontamente acende o isqueiro. Sua
+gentileza não diminui em nada a irritação contida, mas visível de Ana.
+CORTA PARA o Passarinho. A câmera acompanha-o em seu passeio pelas
+mesas, aproveitando pra dar uma geral do bar. Não é necessário dizer
+que mal se agüenta nas pernas. Dá uma parada na mesa do Cabelinho que
+está acompanhado por três carecas e uma sirigaita que lhe cochicha
+indecências no ouvido. Clima de embriagada sacanagem.
+PASSARINHO Todo careca é brocha, se não é vai ficar, né
+não, Cabelinho?
+22
+Um dos carecas se empomba, quer levantar, mas é seguro pelos outros
+dois. Passarinho nem se toca, continua sua circulada. Pára na mesa de
+Tuca Martins que está rodeado de gatinhas.
+PASSARINHO Aí... Picão, hein?
+TUCA (Com falsa modéstia) A gente faz o que pode ...
+CORTA PARA: Ivan que entra com o Profeta
+ANA (OFF - Arremedando) "não, a gente fica sozinho,
+senta noutra mesa ... Conversa ..." Sei!
+Ivan acena para a mesa de Ana e Zeca.
+Corta para Ana que acena de volta com um sorriso amarelo.
+ANA (Entredentes) Pelo menos você podia ficar com
+outra cara, né? Esse ar de menino culpado não
+lhe cai bem.
+ZECA Você me esculhamba durante horas, num momento
+que eu tô precisando de apoio, na hora que tô
+dando uma puta virada na minha vida ... Você me
+arrasa e quer que eu fique com cara de que,
+catzo??!
+ANA (Desistindo) É ... também falar o quê, né? Tudo
+o que a gente diz tá tão gasto ...
+Chegam Ivan e o Profeta.
+IVAN Vocês não se incomodam se a gente invadir a
+privacidade do casal?
+Ivan e o Profeta não esperam a resposta, vão puxando cadeiras vazias
+em mesas vizinhas e sentando.
+ZECA E se eu me incomodar, meu cara Ivan Guerra?
+IVAN Aí, caro Zeca, azar o seu. Já tá na hora de
+você aprender a viver no coletivo.
+ANA Isso ele nunca vai conseguir, Ivan. No mundo
+dele só existe ele.
+23
+ZECA Eu quero é que vocês se ... Deixa prá lá. Deixe
+... Nem isso vocês merecem.
+PROFETA Prepúcio dos Deuses, me traz uma caipirinha de
+cana sem açúcar.
+PREPÚCIO (Em tom de sagrado) Tô com uma barbada ótima
+pro oitavo páreo. Corre daqui há quinze
+minutos, ainda há tempo de fazer o jogo pelo
+telefone, vai pagar bem, "Overdose".
+IVAN A Última barbada que você me deu, um tal de
+"Lança-Perfume" não conseguiu nem chegar ao
+starting gate. O safado do cavalo teve cólicas
+renais - vê se eu agüento - Agradeço suas
+barbadas, Prepúcio, mas me traz um chope bem
+gelado e um sanduíche de qualquer coisa.
+PREPÚCIO Com molho ou sem molho?
+CORTA PARA mesa de Cabelinho que já tá com a mão por dentro da saia da
+sirigaita.
+CARECA Ih, lá vem tua mulher, Cabelinho.
+CORTE RÁPIDO para Cotinha que avança decidida pra cima de Cabelinho. A
+sirigaita mal tem tempo de levantar.
+COTINHA Tu é mesmo um canalha, Cabelinho, Canalha! Você
+me jurou de pés juntos que hoje ia jantar com
+as crianças. Sabe que horas são, sabe? (Pra
+todo mundo) Sabem há quanto tempo ele não vê os
+filhos? Mais de quarenta dias! Quarenta!
+CABELO Também, com aqueles horários que eles têm, quem
+é que agüenta?
+COTINHA Você não quer que eu ponha duas crianças na
+escola noturna, quer?
+CABELO E você quer que eu venha pro bar às sete horas
+da madrugada?! Essa é boa!
+COTINHA Não quero que você venha hora nenhuma. Tua casa
+não é o bar, a tua mulher não é a D. Esperança
+nem foi com um bêbado que eu me casei.
+24
+CABELO Nem eu me casei com uma megera repressora
+insuportável ... Eu fui enganado. Não sabia que
+você era tão chata.
+COTINHA Sou chata mas eu que seguro teus porres, sou eu
+que te dou banho quando você se vomita todo,
+sou eu que cuido da tua casa, que crio teus
+filhos, que trato da tua roupa, da tua comida,
+do feijão que você gosta ...
+CABELO Bem que eu tava desconfiado: Eu casei foi com a
+empregada.
+COTINHA Empregada não, escrava que empregada tem
+salário.
+Chega Galocha apregoando:
+GALOCHA Aí, quem vai: tampão de ouvido? Deixe sua
+mulher falando sozinha, não ouça o que não
+quer. Seu ouvido é pinico? O melhor remédio
+contra chatos! Aí, quem vai? Trezentos
+cruzeiros um par, três por mil, é pra
+acabar ...
+CABELO Dá um aqui pra mim, Galocha!
+Cabelinho tampa os ouvidos e a voz da mulher que continua falando
+desaparece completamente. Cabelinho sorri satisfeito.
+CABELO Ô Prepúcio, traz mais uma rodada!
+CORTA PARA mesa de Ana e Zeca. Chega Nina Saraiva beijando e se
+esfregando nos três homens da mesa, principalmente em Zeca em que ela
+tem um tesão declarado. Para Ana manda um beijinho cínico de longo.
+Arranja um jeito e senta-se ao lado de Zeca. Nada passa desapercebido
+a Ana.
+NINA (Para Ana) Continua torturando o Brasil, Ana,
+por causa daquela famigerada carta?
+Ana olha sério e não responde. Não gosta de Nina.
+IVAN E teu projeto, aquele trabalho na selva em
+índios, sai ou não sei?
+25
+NINA Tá tudo em cima, as músicas tão na cabeça,
+algumas eu até já gravei ... Tá faltando é o
+resto da trupe: O Salvador só vai poder ir
+depois da Festa e o Tuca Martins, nosso ator
+principal, antes tem que estrelar mais um drama
+pornográfico do nosso cinema. Quer dizer, falta
+o texto, que ninguém consegue escrever.
+(Olhando para Zeca) O autor que eu queria não
+pode, ficou chic, só trabalha pra televisão,
+ganha em dólar ...
+ZECA Trabalhava, até hoje de tarde. Mandei tudo pra
+puta que pariu.
+NINA (Entusiasmando-se) Não brinca!
+ZECA Não tô brincando. Nunca fui tão lúcido na minha
+vida (Olha para Ana).
+ANA (Debochando) Claro ... Tão lúcido nunca!
+NINA (Excitada) Pôrra, Zeca, até que enfim! Já tava
+na hora mesmo. Aquela televisão tava te
+matando, matando a tua criatividade, o teu
+talento, tava te deixando bundão - o salário
+garantido no fim do Mês, tava ficando acomodado
+...
+ZECA Cansei de incompetência, da mediocridade.
+Encheu meu saco!
+NINA Foi a coisa mais digna que você já fez na vida,
+eu acho, sinceramente!
+Nesse momento chega um cara ao lado de Ana. Metido e bonitão
+Hippopotamus. Colares de ouro, anéis, camisa aberta, peito cabeludo,
+brilhantina no cabelo à la Chiquinha Scarpa. Seu nome: Camelo.
+CAMELO Ana Moreno! A mulher mais linda e odiada desse
+país!
+ANA (De certa forma lisonjeada) Nem tão linda nem
+tão odiada.
+Reação de Zeca que olha cabreiro pro cara.
+26
+CAMELO (Sentado ao lado dela) Não tá lembrada de mim,
+Ana? A gente estudou junto na Faculdade de
+Sociologia, o pessoal me chamava de Camelo ...
+por causa da barba ...
+O Profeta estende a mão por cima da mesa.
+PROFETA E aí, Camelo? Tudo bem? Muita sede? Sabia,
+Camelo, que Copacabana, Ipanema e Leblon e
+adjacências vão ser tragados pela merda?
+Camelo não lhe dá pelota.
+ANA (Tentando ser simpática) Você fez sociologia
+também?
+CAMELO Não lembra de mim? Só porque ficou famosa?
+ANA (Sem jeito) O que é isso... Que era um turma
+tão grande ...
+CAMELO E eu também não era da tua curriola, não. Me
+metia em política, você é que adorava uma
+passeata, uma manifestação.
+IVAN Ah, nada como um dia após o outro.
+CAMELO Eu era amigo do Cebola, a gente vivia junto.
+ANA (Também não lembrando) Cebola?
+CAMELO O Cebola!
+NINA Porra, que dupla! Camelo e Cebola!
+Camelo não acha graça.
+ANA (Tentando lembrar) Cebola ... Cebola ...
+CAMELO É, já esqueceu, claro, virou estrela de
+televisão ...
+ANA Quem me dera, Camelo.
+27
+CAMELO Eu não sou mais Camelo, meu nome é Peçanha,
+André José Peçanha! E caguei prá você, pra sua
+novela, pra sua televisão, não preciso de nada
+disso. Tô rico, minha filha, tenho muito
+dinheiro, muito. Enquanto vocês pensavam em
+política eu trabalhava.
+ANA Que bom pra você (Já se irritando).
+ZECA Você tem muito dinheiro? Então porque não
+enrola ele todinho e senta em cima?
+PROFETA Me desconta um cheque pra daqui a 90 dias,
+hein, dromedário?
+Todos riem da cara do Camelo.
+CORTA PARA Cotinha que põe Cabelinho pra fora aos pescoções.
+COTINHA Vadio!
+CABELO Ô Cotinha, pára com isso!
+COTINHA Eu te juro que tu vai aprender (E tome-lhe
+pescoção).
+Passarinho passa e vocifera:
+PASSARINHO Abaixo o feminismo radical e ignorante!
+Cotinha levanta a mão pro passarinho que se manda rapidinho, Cotinha
+aproveita e ameaça a sirigaita.
+COTINHA E tu também, sai fora do meu homem, tô avisando
+... (p/ o marido) seu bêbado salafrário.
+Prepúcio chega tentando apartar.
+CABELO Chama a polícia, Prepúcio, o esquadrão da
+morte, e qualquer coisa!
+COTINHA Vocês todos são cúmplices!
+CORTA PARA caixa onde D. Esperança sorri do alto de sua sabedoria.
+CORTA PARA outro detalhe engraçado (a ser inserido).
+CORTA PARA a mesa de Ana e Zeca. Camelo já sumiu.
+28
+NINA Eu não tenho nada a ver com a discussão de
+vocês, mas acho que cê tá caretíssimo, Zeca,
+tem que abrir mesmo ... se abrir pro mundo, ser
+dono do teu nariz, tem que partir prum esquema
+alternativo, independente.
+ANA Se você não tem nada a ver com o papo, e sabe
+disso, então é melhor não ficar dando palpite
+inútil, Nina.
+Chega Prepúcio com mais um rodada pra todo mundo, inclusive nova
+garrafa e nova balde de gêlo para Ana. O Álcool já se faz sentir em
+todos.
+IVAN A gente devia brindar.
+ANA (Levantando seu copo) À irresponsabilidade
+NINA Ao novo, ser desconhecido, ao índio
+brasileiro ...
+IVAN A todos nós, oprimidos e fudidos!
+PROFETA À merda inevitável que brotará na terra e no
+mar.
+NINA Você não pensa em outra coisa?
+PROFETA Quanto tô acordado, não.
+ZECA (Baixo, olhando p/ Ana) Aos insensíveis ...
+NINA (Também olhando p/ Ana) pior do que os
+insensíveis, são os arrogantes ...
+ANA (p/ Zeca, ignorando Nina) Se faz bem pro teu
+ego ser insensato como revolucionário só porque
+teve um ataque histérico na emissora por causa
+de uma crítica, ótimo pra você, azar o seu.
+Agora, eu não vou compactuar com isso, não,
+aliás, com você, pactos nunca mais!
+ZECA Isso parece nome de samba-canção: "com você
+pactos nunca mais".
+29
+ANA Pode parecer o que você quiser, Ivan, mas a
+realidade é que a gente tem uma dívida e
+combinamos que íamos segurar a barra e pagar,
+não tinha nada que pedir demissão, era só até o
+fim do ano.
+ZECA "Só até o fim do ano"? Pimenta nos olhos dos
+outros é refresco, né meu bem?
+NINA Coisa carêta, essa necessidade de segurança
+como se a vida fosse segura! Ilusão, nêga.
+ANA (Estourando) Ilusão? Vocês acham que é fácil
+pra mim passar dez horas por dia dentro dum
+estúdio, gravando cena: sem as mínimas
+condições de trabalho, tendo que decorar
+páginas e páginas de besteira, rir, chorar, e
+ser a mulher má da novela das oito, com a
+população inteira te odiando? Vocês acham que
+eu curto?? Que eu tenho prazer em trabalhar na
+televisão? Porra!
+NINA Então sai, ué! Masoquista?
+ANA (Ficando a fim de dar uma bolacha na outra)
+quem sabe...?
+PROFETA Isso vai dar merda ...
+ANA Se você quer saber, já deu! Deu merda, deu
+mesmo ! (Se levanta) cansei desse papo, esse
+papo é velho, já conheço os passos dessa
+estrada, companheiro, isso não vai dar em nada.
+São quase treze anos vivendo com esse cara, de
+dois em dois anos ele tem uma crise, crise que
+nunca dá em porra nenhuma. Crise a gente tem é
+pra melhorar, senão é desculpa pra fraqueza.
+Ninguém te conhece melhor do que eu, Zeca, não
+fica se enganando.
+IVAN Senta aí, Ana (Passa um faca de mesa pra ela)
+Se quiser pode até matar, mas sem fazer
+escândalo, por favor.
+ANA Quer dizer que eu não posso falar alto?! E eu é
+que sou a repressora! Olha Zeca, eu vou me
+30
+embora, vou pra casa, minha casa. Você por
+favor, arrume um outro lugar pra dormir, tá
+legal?! Pra mim chega!
+Chega o Galocha.
+GALOCHA Tá separando, desquitando? Tenho um quarto jóia
+pra alugar, tá afim?
+Reação de Zeca.
+CORTA PARA:
+SEQÜÊNCIA 10: APT. DE IVAN GUERRA. INT/QUARTO. CORREDOR
+No meio do quarto uma cama absolutamente estranha: o colchão em vez de
+estar no estrado, está no chão, cercado pela estrutura da cama. Com a
+CÂMERA baixa, vemos um pé e um braço que saem por baixo.
+Um rádio despertador digital toca uma música no volume máximo. A mão
+que estava saindo pra fora da cama procura o botão do rádio para
+desligar, e continua a dormir com a mão no botão.
+A pessoa que está ao lado, também toda coberta, acorda, se mexe um
+pouco, se espreguiça e levanta a cabeça daquele buraco. É Zeca, que
+toma o maior susto com um enorme pastor alemão que olha pra ele com a
+língua de fora e o peito arfando.
+Zeca, ao ver o cachorro, fecha os olhos imediatamente e fica pensando
+se não ficou mesmo maluco. (Zeca tá com a roupa da noite anterior,
+inclusive sapatos).
+ZECA (Sacudindo a outra pessoa) Guerra, ê Guerra
+acorda ... (baixinho) Você tem cachorro em
+casa?
+IVAN (Dormindo) que cachorro, pombas ...
+ZECA Então levanta devagar e vê se não tem um
+cachorro aí no pé da cama.
+IVAN Porra, deixa eu dormir, que cachorro coisa
+nenhuma, sou lá homem de ter cachorro? (E volta
+a dormir).
+ZECA (Insistindo) Ô Ivan ... não tô de sacanagem
+não, mas eu queria saber se tem ou não tem um
+pastor alemão no pé da cama.
+31
+IVAN Emputecido, resolve levantar pra ver. Quando
+ele levanta, o cachorro levanta também. Ele
+deita depressa e o cachorro deita também.
+IVAN (Refugiando-se debaixo do travesseiro) Eu
+preciso parar de beber.
+ZECA Eu também, eu juro ... o que é que a gente vai
+fazer?
+IVAN De que cor que é o seu?
+ZECA O meu é manto negro, e tá com uma língua enorme
+do lado de fora, vermelha.
+IVAN O meu também é manto negro com uma língua
+vermelha.
+ZECA É possível duas pessoas terem o mesmo delirium
+tremons?
+IVAN Acho que é ... Não tem aqueles caras que olham
+e os dois vêm um elefantinho cor-de-rosa? Então
+? A gente tá vendo um pastor alemão manto negro
+com uma língua vermelha pendurada.
+ZECA Eu juro que não bebo mais ... esse foi o último
+porre que eu tomei na vida. Será que o cachorro
+ainda taí? Dá uma olhada.
+IVAN Eu não, dá você, deteste cachorro. Odeio.
+ZECA Alguém tem que olhar ... par ou ímpar?
+IVAN Par ...não, ímpar!
+Tiram par ou ímpar debaixo do travesseiro.
+IVAN (Vitorioso) Ímpar!
+Zeca levanta com cuidado e não vê nada.
+ZECA (feliz) Sumiu, o bacana.
+IVAN Eu já tava ficando preocupado ...
+32
+E fazem menção de se levantar quando ouvem um leve rosnar do cachorro.
+Se viram e o cachorro está do outro lado, olhando pra eles que se
+enfiam de novo debaixo das cobertas.
+IVAN É o mesmo cachorro?
+ZECA Será que é uma invasão de cães?
+IVAN E eu tô precisando dar uma mijada, a bexiga não
+tá agüentando.
+ZECA Eu também. Tem um urinol?
+IVAN Urinol???
+ZECA Urinol, pinico, comadre.
+IVAN Tá vendo urinol também? Primeiro você pergunta
+se eu tenho cachorro depois se eu tenho
+urinol ... é assim que você retribui a minha
+hospitalidade? Você tá me achando com cara de
+quê?
+ZECA Desculpa, Ivan, desculpa, porra ... mas a gente
+vai ter de levantar, alguém vai primeiro ...
+IVAN Par ou ímpar?
+ZECA Ímpar.
+Jogam e Ivan perde. Com o cú na mão, levanta e passa devagarinho pelo
+cachorro.
+O cachorro levanta e vai atrás de Ivan. Ele pára, encagaçado, e o
+cachorro pára também.
+ZECA (Jogando p/ Ivan meio sanduíche que tira do
+bolso) Toma, dá pra ele um pedaço de pão. Se
+ele comer, existe. Delirium tremons não come
+pão.
+O telefone começa a tocar. Ivan dá o pão pro cachorro que come numa só
+bocada quase levando a mão dele junto. O telefone pára de tocar sob
+olhares aflitos. Zeca e Ivan se abraçam felizes.
+33
+IVAN Ainda bem que não era delirium tremons.
+ZECA Precisamos tomar um porre pra comemorar.
+IVAN Urgentemente! Mas porra, como é que esse
+cachorro veio parar aqui?
+ZECA E eu é que sei? A casa é tua.
+IVAN Mas o cachorro não é!
+Ficam intrigadíssimos. O telefone toca de novo. Zeca atende.
+ZECA Alô ...
+NINA (OFF) Donde fala?
+ZECA 259-35 ... não, não .... esse é o meu, sei lá!
+NINA (OFF) Zeca? Sou eu, a Nina.
+ZECA Ô, meu amor, que que você manda?
+NINA (OFF) Pelo amor de Deus, me diz uma coisa,
+ontem quando você vieram me trazer em casa,
+vocês levaram o meu cachorro? Já procurei que
+nem doida, e o meu porteiro disse que viu dois
+homens de porre, saindo com ele...
+Reação de Zeca e Ivan.
+CORTA PARA seqüência seguinte.
+SEQÜÊNCIA 11 - APARTAMENTO AUTOR-ATRIZ - INT. DIA
+Ana caminha pelo corredor da casa em direção à sala, enrolada numa
+toalha de banho, os cabelos presos por grampos, carregando objetos de
+uso pessoal de Zeca, quase tropeçando em Babita que a segue de perto,
+aparentemente aplicada em ajudar a mãe, arrastando algumas camisas
+pela mão. Ana traz uma caixa com objetos do toucador e fala enquanto
+anda e ajeita as coisas na caixa:
+ANA Separação. Nunca ouviu falar? Se-pa-ra-ção.
+34
+BABITA Que nem a gente vê na novela?
+ANA Para de achar que tudo que você vê na sua vida
+...
+BABITA Por que, você não gosta mais do papai?
+Ana não sabe como responder, hesita, deixa as coisas nas três malas
+enfileiradas no chão onde estão separadas roupas, discos, material de
+trabalho e curtição de Zeca. Ao lado das malas, Yuri, o outro filho
+está sentado, ouvindo o papo. Ana volta para o quarto, Babita atrás
+dela.
+ANA Gosto ... quer dizer ... não sei, Babita. Eu
+tou confusa, ele também está confuso ...
+Enquanto isso, na sala, Yuri nervosamente revira as malas do pai a fim
+de surrupiar alguma coisa do pai: encontra um par de óculos, bota no
+rosto exibindo um sorriso orgulhoso.
+ANA (OFF) Não sei, Babita ... Só sei que não dá
+mais. Eu não agüento mais viver com seu pai (há
+um tom de decisão e raiva nas suas palavras) ...
+posso estar errada, mas não dá, não quero mais.
+Yuri esconde os óculos nas costas ao ver a mãe entrar na sala com
+Babita. Ana para um pouco, sem saber o que dizer e continua arrumando
+os discos, nervosamente, na mala. Enquanto isso Yuri, escondido da mãe
+mostra os óculos que roubou do pai à irmã e esconde debaixo de uma
+almofada. Babita devolve um sorriso de cumplicidade. Yuri vira-se para
+a mãe e diz:
+YURI Porra, não, não dá pra entender mesmo. Vocês
+não vivem dizendo que a gente era uma tribo?
+Como é que acabam com a tribo sem consultar a
+tribo?
+Ana, embaraçada com a pergunta, desconversa.
+ANA (Caminhando para o quarto) Yuri, depois a gente
+conversa, tá? A mãe vai tomar um banho que já
+está na hora da gravação e depois a gente fala
+melhor.
+Yuri e Babita, na sala, procuram mais alguma coisa pra roubar.
+35
+Encontram um gravador, discutem entre si a posse dele.
+BABITA Você já ficou com os óculos, o gravador é meu.
+YURI Ah, é, é? não senhora !!!
+A campainha toca, os dois escondem rapidamente o gravador. Yuri abre a
+porta; é Zeca. Ele olha, vê as malas e pergunta.
+ZECA Tem alguém de mudança?
+BABITA Tem; você!!
+Ana surge na porta do quarto. Clima de constrangimento.
+ANA Botei os discos e os livros numa mala só. As
+roupas estão separadas. Se tiver faltando alguma
+coisa você me avisa depois.
+ZECA Ah, quer dizer que não era um porre? (muda de
+tom) ... Olha, eu vim aqui para conversar ...
+ANA Mas eu não tenho mais nada pra conversar com
+você: e não estou de porre! (vira-se para Yuri)
+Quer dizer pro teu pai que é verdade?
+YURI Pai, ela mandou dizer que o cacique foi
+demitido.
+Ana vai saindo da sala, enquanto Zeca responde.
+ZECA (Para Yuri) É, vai ver ela já elegeu um novo
+cacique ... E vocês, vão concordar?
+Ana entra no banheiro batendo a porta. Zeca procura nervosamente entre
+os discos um elepê de Roberto Carlos. Acha. Coloca na vitrola e diz
+para o filho, falando alto:
+ZECA Diga pra tua mãe que eu deixei esse presente
+para ela.
+Roberto começa a cantar
+- "ai, eu vim aqui amor, só pra me despedir..."
+36
+Zeca pega as malas, beija os filhos e sai.
+- "e as últimas palavras desse nosso amor..."
+Duas lágrimas rolam no rosto de Ana misturando-se à espuma e a água do
+chuveiro.
+SEQÜÊNCIA 12 - INTERIOR
+Prepúcio está servindo uma rodada de chope para Cabelinho e uns caras.
+Cam. abre e mostra que eles estão bebendo dentro do mictório do bar.
+Prepúcio está falando:
+PREPÚCIO Ela disse que não sai enquanto você não
+aparecer nem que tenha de dormir no bar ...
+(Ri)
+CABELINHO CAGUEI!!! Então eu vou tomar um porre dentro
+desse mictório: fica comigo Bochecha? (pergunta
+a um desses caras)
+BOCHECHA (Meio sem graça, o cheiro lá dentro está
+insuportável) É ... quer dizer ... Eu segura-o
+um pouco!
+CABELINHO Não dá, rapaz, não dá ... a mulher vive
+infernizando a minha vida, quer que eu pare de
+beber, já imaginou? (Decidido) Eu não saio
+daqui!!!
+PREPÚCIO Larga a mulher, Cabelo !!
+CABELINHO Já tentei Prepúcio, já tentei ... mas ao mesmo
+tempo eu sou amarrado na Cotinha - (Orgulhoso)
+tu não conhece a Cotinha, Prepúcio!
+Prepúcio vai saindo. Cabelinho o chama:
+CABELINHO Prepúcio ... se ela for embora você me avisa,
+tá? E quando voltar, traz um tira-gosto!
+BOCHECHA (Com cara de nojo) Aqui dentro !!!
+Durante essa cena haverá um movimento normal de mictório de bar.
+Pessoas entrando e saindo, bêbados tentando mijar, etc. Prepúcio sai
+rindo. Corte. No interior do bar o movimento é intenso. Passarinho, de
+porre (como sempre) anda trôpego entre as mesas, dando trinados
+37
+imitando pássaros. De vez em quando interrompe os trinados e puxa um
+samba-canção.
+PASSARINHO "Aço firo de um punhal..." foi teu adeus, pra
+mim ..."
+Passarinho retoma a caminhada. Para junto da mesa onde estão Ana, duas
+amigas e Valfrido Salvador. Passarinho senta. Valfrido está falando:
+VALFRIDO Vai ser o maior agito: vou trazer crítico,
+imprensa ... o Rio de Janeiro inteiro vai se
+apertar dentro do mictório desta espelunca! (Se
+entusiasma) vai ser a exposição do ano!!
+ANA É ... (sacaneando) pode não vender quadro, mas
+promove!
+VALFRIDO Promoção sim, porque não? Promoção ... isso é o
+que conta; é preciso tirar a arte dos museus,
+das paredes, das salas fechadas e criar espaços
+novos, invadir os meios eletrônicos, resgatar a
+festa popular; entendeu, ô estrelinha de
+televisão!!!
+ANA Olha aqui, ô Picasso de merda ... primeiro: o
+que conta é o valor da obra, sua qualidade, o
+talento de quem a faz: segundo - estrelinha de
+televisão, é a mamãezinha!
+As amigas dão força a Ana. Valfrido começa a esbravejar:
+VALFRIDO E o trabalho que você faz tem algum valor? Vive
+se promovendo ... (a discussão agora está
+acalorada)
+Passarinho que a tudo ouvia com cara de enfado e tédio, levanta da
+mesa, olha para os quatro e emite um som, como se estivesse vomitando:
+PASSARINHO "ELEAAAAAAARRRRRGSGGGSHHHHH"
+Feito isso vai sentar na mesa ao lado onde estão Galocha e Dona
+Cotinha. Galocha tenta mostrar as qualidades de um produto:
+GALOCHA Se o remédio falhar, o laboratório fabricante
+lhe paga uma indenização. As estatísticas
+mostram que nove entre dez alcoólatras, deixam
+38
+de beber. Basta a senhora misturar o remédio na
+comida do Cabelinho ...!
+Cotinha que a tudo ouvia impassiva, sentada numa mesa de bar tomando
+uma coca-cola, sozinha, com raiva do marido, explode:
+COTINHA O Sr. quer fazer o favor de sumir daqui!!!
+GALOCHA (Saindo) A Sra. que sabe, Dr. Cotinha, a Sra.
+que sabe ...
+Passarinho continua com cara de enfado. Prepúcio chega na mesa.
+PREPÚCIO Dr. Cotinha dá pra Sra. esperar o Cabelinho, no
+balcão? Tem muita gente querendo mesa ... aí -
+eu levo prejuízo, né?
+D. Cotinha se levanta e vai para o balcão. Passarinho levanta outra
+vez.
+PASSARINHO BLEAAAAAARRRGGGGHHHH!
+Passarinho caminha em direção ao mictório. (Corta)
+No mictório, Cabelinho e Bochecha conversam à porta de um dos
+compartimentos. Cabelinho mal se sustenta em pé, segura Bochecha que,
+também bêbado, tenta se desvencilhar. Na tampa da privada estão os
+copos de chope, maços de cigarro, um pacotinho de amendoim. Passarinho
+entra direto para um dos compartimentos e começa a mijar.
+CABELINHO Porra, Bochecha! Quer dizer que os ratos
+abandonam o navio? Porra, Bochecha, tu não vai
+me deixar aqui sozinho ...
+BOCHECHA Não dá, Cabelo, não dá ... tá legal, eu sou
+solidário ... mas tou precisando respirar ...
+este cheiro de pinhobosta tá me assassinando!
+CABELINHO Só mais um pouco, Bochecha ... Ela já deve tá
+se mandando ...
+BOCHECHA Escuta aqui, Cabelinho, vou mostrar que sou
+solidário ...Tu segura aqui, eu vou lá fora,
+dou um bordejo, vejo se a Cotinha já se mandou
+e depois te faço o relatório. Tá legal?
+CABELINHO Tá legal, mas me trás um pilot na volta ...
+39
+Passarinho, que acabou de mijar, sai do compartimento fechando a
+braguilha, passa pelos dois, olha-os nos olhos e:
+PASSARINHO BLEEEEEAAARRRGGGGHHHH!
+Passarinho sai do mictório. Câmera o acompanha. Passarinho ainda de
+porre caminha por algumas mesas até que senta na mesa de Ivan Guerra,
+que também de porre, resmunga solitário.
+A porta do bar se abre e entra um índio. Está vestido simplesmente:
+uma calça, uma velha camisa, sandália, e uma bolsa de pano no ombro.
+Seu ar é sério, preocupado. Olha para todo o bar como e estivesse
+procurando alguém. As pessoas olham para o Índio com expressões
+variadas: deboche, espanto, sorrisos. O índio se encaminha para o
+balcão. Passa pela mesa de Ivan e Passarinho. Ivan se assusta.
+IVAN Passou um índio aqui?
+Passarinho rosna, não responde. Ivan sacode a cabeça, fecha os olhos,
+cutuca passarinho.
+IVAN Passarinho ... Passarinho ... você que é expert
+... delirium tremons é só com bichos ou pode
+ter gente também? (CORTA)
+O índio chega no balcão do bar onde estão conversando Dona Esperança,
+atrás da caixa, e Cotinha, no balcão. O índio pergunta por Nina e Dona
+Esperança responde que ela deve estar chegando, que ele aguarde. O
+índio fica parado junto ao balcão, em silêncio. Dona Cotinha e
+Esperança retomam a conversa interrompida.
+COTINHA Dona Esperança, eu conheço esse homem como
+ninguém. São quinze anos ... quinze anos! Ele
+não presta, nunca prestou. Olha, Dona
+Esperança, só existem duas coisas capazes de
+fazer o Cabelo deixar de freqüentar esse bar.
+Uma é fechar o bar. A outra, só eu sei quanto
+vai me custar, mas juro que vou fazer ...
+DONA
+ESPERANÇA (Assustada) Calma Dona Cotinha, calma ...
+DONA COTINHA Eu juro que a próxima vez que eu encontrar o
+Cabelo dentro desse bar eu vou tirar a roupa
+inteira, vou ficar nua em pêlo. Vou fazer um
+strip-tease na frente dos amigos dele! Ele vai
+40
+ficar tão envergonhado que nunca mais entra
+aqui!
+Ao ouvir isso, o índio olha cabreiro para as duas.
+DONA
+ESPERANÇA Bem que eu tenho pensado em vender esse bar,
+Dona Cotinha ... Ando cansada ... Desde que meu
+marido morreu, há dez anos, que eu venho
+segurando o bar como meu trabalho... são bons
+meninos ... o Cabelinho, boa gente, vi crescer
+aqui ... mas é muita loucura, muita loucura
+Dona Cotinha ... estou cansada ... (CORTA)
+No interior do mictório, vai e vem de pessoas. Cabelinho, solitário,
+continua bebendo, agora desenhando meticulosamente a parte inferior da
+porta do banheirinho onde estão os copos de chope. Entra uma figura
+soturna, aproxima-se de Cabelinho:
+FIGURA Por obséquio, o Sr. poderia me emprestar um
+pilot?
+Cabelinho empresta um de seus pilots. O homem dirige-se a um dos
+compartimentos e desenha na porta uma suástica. Volta e, polidamente,
+devolve o pilot a Cabelinho dirigindo-se para a saída. Cabelinho
+recupera-se do espanto e pula:
+CABELINHO Filho da puta! Ei, segura ele (gritando) Eu vi
+um nazista - eu vi um nazista!!!
+Sai correndo atrás do cara, e quase na porta, lembra-se de Cotinha e
+volta chutando as paredes, de raiva. CORTE
+No interior do bar, Zeca, Tuca e Nina acabaram de chegar e se
+encaminham para a mesa de Ivan e Passarinho. Sentam. Ana, da sua mesa,
+vê Zeca. Olha nervosamente para o marido. Zeca também vê Ana. Começa
+uma troca de olhares. Zeca fica tenso. Prepúcio traz o índio até a
+mesa. O índio senta. - Ivan fala para Zeca.
+IVAN Chegou o dono do cachorro ...
+Nina se surpreende ao ver o índio.
+NINA Oi, Donato! (apresenta o índio as pessoas)
+Zeca continua observando Ana. Nina conversa com o índio e Tuca.
+41
+NINA (Para Zeca) O Donato disse que está tudo
+resolvido com a FUNAI: eles autorizaram a
+festa; vai ser dia 18 de Dezembro...
+Zeca não está prestando muita atenção no papo; seus olhos estão em
+Ana.
+Conosco vão umas pessoas, né Donato?
+Donato confirma com a cabeça.
+um padre, um jornalista e um advogado. Tá
+ouvindo Zeca?
+ZECA (Voltando a si) 18 de Dezembro ... claro!
+Na mesa Ana, Valfrido continua discursando. As amigas de Ana continuam
+atentas às palavras de Valfrido.
+VALFRIDO É preciso abrir espaço pra mediocridade...
+acabar com essa idéia de que a arte é
+privilégio de uns poucos abençoados (vai se
+inflamando e sobe na cadeira) É preciso acabar
+com o elitismo!!
+Todos vaiam, assobiam e aplaudem. Zoeira total. Neste momento a porta
+do bar se abre, e aparecem três policiais fardados. Tensão no bar.
+Silêncio. Todos se comportam como se tivessem sido flagrados pelo
+inspetor do colégio. Valfrido senta de mansinho na cadeira... Os
+guardas caminham até o balcão, cumprimentam D. Esperança, que serve
+água mineral para eles. Silêncio. Os guardas agradecem e saem andando.
+Silêncio. Os guardas vão embora. Esporro. O bar volta a fervilhar.
+Arnaldo, um dos freqüentadores do Esperança, senta na mesa de Ana e
+puxa papo. Zeca da sua mesa está vendo. Nina e Tuca tentam convencer
+Zeca. Passarinho e Ivan quase dormem.
+TUCA Vamos Zeca ... O Valfrido já topou, só falta
+você! - vamos sair um pouco deste botequim ...
+da cidade!
+ZECA (Acabando de olhar Ana) Tá legal, eu topo, mas
+antes eu preciso terminar um trabalho.
+NINA/TUCA (Espantados) Que trabalho?!
+42
+ZECA Terminar dez cartas de amor, pra gráfica do
+Pedroca ...
+NINA (Beijando Zeca) Eu te escrevo quantas cartas de
+amor que você quiser...
+Ana, de longe, assiste a cena.
+SEQÜÊNCIA 13 - SUPERMERCADO - INT. DIA
+Ana Moreno percorre as prateleiras de um supermercado tirando
+metodicamente, com rapidez e precisão, as compras e conferindo cada
+objeto na lista que trás nas mãos. Ela está usando um de seus
+disfarces: um boné enorme que cobre seus cabelos, óculos escuros
+grandões e uma blusa folgada. Seus gestos são nervosos e rápidos. O
+movimento é grande. Mulheres confabulam diante das prateleiras, homens
+com máquinas que mudam os preços freneticamente, jovens maridos
+fazendo compras com minicalculadoras. De vez em quando alguém olha
+para Ana como se fosse reconhecê-la. Ela se assusta, desvia o olhar e
+mergulha mais nervosamente no seu ritual. O carrinho está quase cheio.
+Em outro corredor paralelo ao de Ana, Zeca leva com muita hesitação um
+carrinho quase vazio. Pára diante de cada produto novo, pensa, pega um
+pacote, volta atrás e devolve quando encontra um outro. De vez em
+quando olha para as mulheres em volta como se quisesse pedir ajuda.
+Num desses movimentos Zeca vê - pelo espaço de uma prateleira - a
+figura de Ana. Se atrapalha, deixa dois produtos em qualquer lugar,
+vai seguir caminho, pensa, pega o carrinho e segue em direção ao
+corredor onde está Ana.
+Ana prossegue em seu ritual. Zeca vem em sua direção pegando uma coisa
+ou outra nas prateleiras. Os dois encontram-se. Pausa. Sorrisos meio
+sem graça, ficam um diante do outro, os carrinhos entre eles:
+ZECA Oi! Como é que é?
+ANA Oi! Tudo bem... na batalha ... E você? (Olha
+para o carrinho e ri, maliciosa) Hoje é dia de
+compras, é?
+ZECA (Sem graça) É ... pra você ver ... (Vira um
+pouco a direção do carrinho na mesma direção de
+Ana) Tô meio enrolado ... vem cá ... esse
+barato de limpeza não tou sacando algumas
+sutilezas ... (Os dois já estão caminhando
+juntos, meio rindo, naturalmente) Ia comprar
+aquele detergente ali, mas bateu a dúvida:
+43
+detergente lava louça? (Zeca para, olha para
+Ana, como um aluno para a professora de
+geografia).
+ANA (Explodindo numa risada) Claro, ô anafalbeto!
+Detergente lava louça. Sabão também, sabia?
+(Muda de tom, curiosa) Vem cá, o apartamento do
+Ivan não tem infra nenhuma não, é?
+ZECA Pois é, uma loucura! (Mostra uma pilha de
+pacotes de vela) Luz cortada por falta de
+pagamento ... recessão de papel higiênico ...
+tampa de privada quebrada ... (faz uma cara
+gaiata) por falar nisso, onde fica a sessão de
+desentupidores?
+ANA (Rindo) Tá ruço, hein?
+ZECA (Mentindo que se entregou demais, se
+recompondo) Tá ... e você? Ontem na Dona
+Esperança te achei meio abatida ... que é que
+há? (olha Ana nos olhos)
+Diante da pergunta, Ana se irrita, vacila e retoma seu ritmo de
+compras, pegando coisas nas prateleiras, Zeca atrás dela.
+ANA Nada ... tudo na mesma, né, Zeca. (Confere a
+lista) Cansaço, só. Ontem a gravação foi pesada
+...
+ZECA (Insistindo) ... pois é ... te achei meio
+triste (Tentando acompanhar o ritmo de Ana) ...
+e as crianças? O Yuri fez as provas? (Corre um
+pouco mais para pegar a resposta de Ana).
+ANA (Ocupada com a lista de compras) Tá fazendo ...
+não estudou nada, claro ... (Pára um pouco,
+olha de frente para Zeca, meio provocando) Por
+que? Tá preocupado?
+ZECA É ... Não sei ... tive pensando que ele deve
+estar precisando de um apoio maior, posso até
+dar uma mãozinha em português. Aliás, passei
+por uma seção de roupas ali na frente ... você
+podia comprar um jeans novos pra ele. Ele tá
+reclamando que os dele tão churreados.
+44
+Ana que vinha se absorvendo nas compras outra vez, se irrita e
+explode.
+ANA Ah, você está preocupado? Será que o Yuri vai
+ficar traumatizado porque anda de jeans
+esfarrapados porque a mãe dele não tem tempo de
+comprar roupa nova pra ele? Pode ser grave, não
+é? Como é que você nunca pensou nisso antes,
+hein, Zeca? (Fica cada vez mais irritada, agora
+é incisiva) Olha aqui: eu estou atrasada, tenho
+gravação daqui a pouco, tenho que levar essas
+compras em casa, despachar o Yuri pro colégio,
+gravar, interromper a gravação, pegar a Babita
+no colégio, levar ao dentista, deixar em casa,
+voltar para uma externa, noturna, na praça
+Saens Pena e ainda nem li o texto. Não dá pra
+ficar ouvindo sua pregação pedagógica, tá
+legal?
+Ana sai empurrando o carrinho a todo pano. Zeca ainda atrás, surpreso
+com a explosão.
+ZECA Eu só queria saber ...
+ANA (Parando, subitamente) eu só queria fazer o que
+tenho que fazer. E tem mais: tou precisando da
+chave da casa que você ainda não me devolveu.
+Tá com ela aí?
+Zeca perde o controle. Avança para Ana, puxa o boné, arranha os óculos
+escuros e começa a falar alto.
+ZECA Ana Moreno, você por aqui! Berenice, é você! Ei
+pessoal, olha ela aqui. Tá dizendo que vai
+entregar a carta!
+Confusão. As pessoas começam a cercar Ana. Pedir autógrafos. Examinála.
+MULHER 1 É ela, menina.
+MULHER 2 Olha que estruncho, minha filha.
+MULHER 3 Ana, me dá um autógrafo?
+MULHER 1 Vai entregar a carta, é, escrota?
+45
+A confusão aumenta. Ana está histérica. Zeca começa a se afastar
+gritando.
+ZECA Joga bosta na Berenice! joga bosta na Berenice!
+Zeca vai se afastando com um sorriso da Dr. Silvana. Ana, no meio da
+confusão, está histérica.
+ANA Sou, sou a Berenice sim! E tem mais: vou fuder
+com a vida de todo mundo na novela! ...
+Cafajeste! Eu mato esse cafajeste.
+SEQÜÊNCIA 14 - ESTÚDIO DE FILMAGEM - INTERIOR - DIA (OU NOITE)
+Claquete de cinema com o título do filme "A VIÚVA DO SADOMASOQUISTA"
+e abaixo o nome do diretor: LUIGI DI GRANATO. A câmera descobre o
+ambiente: no centro do cenário uma cama enorme, antiga, objetos de
+tortura espalhados por toda parte: luvas de boxe, palmatórias, soco
+inglês, chicotes de vários tamanhos. Tudo muito doente e muito cafona.
+Também câmera, gravador nagra, refletores, rebatedores, parafernália
+de filmagem e pessoas da equipe circulando agitadas e manipulando
+essas coisas. Algemada e amarrada à parede, inteiramente nua, está
+Áurea Celeste, atriz do filme pornô. O maquiador do filme dá os
+últimos retoques numa maquiagem exótica que faz em seu corpo. Na
+cabeça ela traz um veuzinho negro que lhe cobre o rosto.
+ÁUREA CELESTE (Para o diretor do filme) Porra, Luigi, vai ter
+que filmar rápido porque essa porra tá
+machucando meu pulso, tá legal?
+LUIGI Dois minutos. Tô dando as últimas instruções
+pro Tuca, falou?
+Nesse instante a gente vê o Tuca, inteiramente nu, com duas azinhas
+nas costas e uma auréola de arame suspensa sobre a cabeça.
+Completamente ridículo. Ela conversa com o diretor com muito jeitinho
+porque precisa demais da grana que vai ganhar com esse trabalho.
+TUCA Luigi, só mais uma coisa: Será que não dá pra
+gente mudar um pouquinho esse teste? É porque
+tá meio difícil de decorar - olha só, tem "r"
+demais, cara: "Roberta, retornei do além pra te
+46
+resgatar rapidamente, minha rainha!" Isso dá um
+nó na língua!
+LUIGI Pelo amor de Deus, Tuca, nem pensar. Isso vai
+me dar a maior alteração. Me avisaram pra não
+mudar nenhuma palavra do texto. Me dá uma
+colher de chá, fala o que tá escrito aí, tá
+bom?
+TUCA (Concordando, desanimado) Tá bom. Vamos lá.
+Assistente está medindo foco em Áurea, fotógrafo corrigindo luz, som
+guia testando som etc. Luigi repassa a cena com Áurea e Tuca.
+LUIGI Muito bem, minha gente. Vamos de primeira,
+hein? (Fala rápido) Tuca vem lá de trás, pula a
+janela (Luigi aponta a janela do cenário que é
+uma janela grande e baixa), pega o chicote na
+cama - esse maior (Na cama estão vários
+chicotes e os outros instrumentos de tortura) -
+dá o teto: "Roberta etc etc", vai até Áurea,
+dá-lhe uma chicotada, vocês começam a trepar e
+aí eu corto. Tá bem? (decide) Então vamos
+rodar.
+ASSISTENTE DE
+LUIGI Silêncio no set. Atenção. (Para Tuca) Eu fico
+aqui e dou o sinal pra você saltar. Quando eu
+baixar o braço.
+LUIGI (Para Tuca, cúmplice) Olha, não se esquece do
+fundo mental. Prepara aí a maior ereção da tua
+vida. Quer um tempo pra se concentrar?
+ÁUREA CELESTE (Lá da parede, amarrada) Como é que é? Vai ou
+não vai? Tô começando a ficar com fome, porra!
+LUIGI (Para Luigi) Não, tudo bem. Pode rodar.
+Luigi dá um risinho malicioso e faz sinal com o dedo de "positivo".
+Tuca começa a ficar nervoso detrás do cenário e vai repetindo o texto
+baixinho: "Roberta, retornei do além pra te resgatar rapidamente,
+minha rainha, Roberta, retornei do além etc etc. compulsivamente.
+Conserta a auréola na cabeça, olha pro assistente de Luigi que está de
+mão levantada pra lhe dar o sinal.
+47
+LUIGI Som! Câmera! Ação!
+O assistente de Luigi ao dar o sinal pra Tuca, sem querer, peida
+estrondosamente. Tuca não se agüenta, dá uma gargalhada, mas assim
+mesmo solta.
+TUCA (Ainda rindo) "Roberta, retornei rainha
+rápida ...
+LUIGI Corta!
+TUCA Desculpa mas é que foi engraçado demais, eu não
+me agüentei, tive que rir...
+LUIGI Não é isso. Se quiser rir pode rir, ninguém tá
+ligando mesmo, tá todo mundo olhando pra Áurea
+Celeste nua naquela parede. (Cochicha) Mas tem
+que estar de pau duro, cara, senão não tem cena
+...
+TUCA (Olhando pra baixo, concluindo meio
+envergonhado) Claro, claro, é que eu fui
+rir ... aí ...
+LUIGI (Dando um tapinha nas costas de Tuca, solidário
+e gritando pra equipe) Take?!
+Tuca vai pro seu lugar, começa a passar o texto, olhando pro próprio
+pau, de mãos postas, pedindo pra que ele não falhe ... "Roberta
+retornei do além pra te resgatar etc etc. Pela sua expressão, vemos
+que ele não consegue a ereção. Vai ficando nervoso enquanto repete o
+texto cada vez mais rápido.
+LUIGI Som! Câmera! Ação!
+Tuca salta triunfal da janela, pega o chicote da cama e brada:
+LUIGI "Roberta! Retornei do além pra te (olha pra
+baixo e, desanimado, vai baixando o tom de voz)
+resgatar... rápida ... (Para Luigi) Vamos mais
+uma? Dessa vez eu te prometo ...
+ÁUREA CELESTE (Da Parede) Olha aqui, só mais essa. Não vou
+ficar aqui de otária amarrada nessa porra dessa
+parede o dia inteiro. Ô Luigi, da próxima vez
+vê se chama um pau que levante, né?
+48
+Tuca humilhado, volta à posição. Começa a se concentrar com mais
+fervor do que antes enquanto em off Luigi anuncia o Take 3. Tuca, cada
+vez mais nervoso, continua repetindo o texto baixinho e rápido,
+olhando pra baixo e suplicando.
+LUIGI Som! Câmera! Ação!
+Tuca já não salta a janela. Apenas a transpõe, cabisbaixo, pega o
+chicote e o deixa pendurado na mão. Olha pra baixo, vai começar a
+dizer o texto mas não termina. Cai na cama e começa a chorar. Nu e de
+asinha. Luigi e o fotógrafo do filme se entreolham. Luigi balança a
+cabeça pro fotógrafo como quem diz "com esse cara não vai dar..."
+SEQÜÊNCIA 15 - ÔNIBUS CIRCULAR EM MOVIMENTO - DIA/NOITE
+Ônibus circular em movimento, cheio. Dentro dele, Tuca, nosso herói
+fracassado, sacoleja em pé, apertado entre outros passageiros.
+Ressentido, ele conversa com o próprio pau:
+TUCA Papelão, hein? (Ele fala olhando pra braguilha)
+Me deixar assim na mão ... francamente ...
+Parece gato de armazém - dormindo em cima do
+saco! Tá legal!
+Tuca vai falando cada vez mais alto, irritado, as pessoas ao lado
+começam a olhar pra ele meio cabreiras.
+Na hora em que eu mais preciso de você, me
+fazer uma falseta dessas!
+Uma senhora se compadece.
+SENHORA Meu filho, você está com algum problema? Tá se
+sentindo bem?
+Tuca ignora tudo em volta. Continua em sua mágoa.
+Quem te viu quem te vê. Nem parece que conheceu as coxas deslumbrantes
+de Inês. Depois de ter sido aplaudido de pé naquela sessão de sexo
+grupal na casa do Cesinha! Logo hoje que eu precisava descolar essa
+grana você me deixa na mão. E agora, como é que vamos sobreviver? Quem
+não come não brinca, otário! (Dá um berro dentro do ônibus) Não quer
+trabalhar, não, é, vagabundo?
+49
+SEQÜÊNCIA 16 - APTO DE IVAN - INTERIOR - NOITE
+Apartamento às escuras (conta de luz atrasada). Lá dentro estão Ivan e
+Zeca cercados por velas - muitas - tentando das iluminação de luz
+elétrica mas sem sucesso: parece mais coisa de filme de terror. Ivan,
+na sala, fala com alguém no telefone. Ivan anda pela casa inteira
+quando fala ao telefone. Aparece e desaparece dos cenários, sempre
+pontificando.
+IVAN Varela ... Vamos usar um dos nossos recursos.
+Vamos cansar eles todos pedindo questão de
+ordem. Às três da manhã vai estar todo mundo
+cansado e a assembléia vai esvaziar. Quando
+esvaziar a gente coloca em votação, percebe?
+(Ele o ouve Varela do outro lado da linha)
+Sei ... Sei Mas isso não resiste à crítica. O
+indivíduo não pode modificar a marcha objetiva
+da história.
+ZECA (Cantarolando lá da cozinha) "Deixa chover, ô ô
+ô deixa a chuva molhar ..."
+IVAN (Irritadíssimo) (Tapando um instante o
+telefone) Porra, Zeca, quer parar de cantar
+essa merda dessa música que eu não agüento
+mais?
+Zeca está na cozinha com uma única vela na mão, uma panela na outra,
+abrindo vários armários, procurando alguma coisa.
+ZECA Pois é, rapaz, acordei com essa música hoje,
+não consigo parar de cantar. Ei, cadê aquele
+pacote de sopa pronta que eu comprei ontem?
+IVAN Tá nesse armário debaixo da pia, porra!
+Zeca, na cozinha, acaba de achar o envelope da sopa, abre-o joga o
+conteúdo na panela, meio atrapalhado, sem saber onde põe a vela. Joga
+um pouco de parafina no mármore, queima a mão, abre a torneira, põe o
+dedo embaixo pra aliviar, joga fora o pacote da sopa, põe a panela no
+fogo - já aceso - e vai botar água quando se dá conta que não sabe
+como fazer. Então vai no lixo, pega novamente o envelope e começa a
+ler as instruções enquanto cantarola.
+50
+ZECA "Foi Deus quem fez o amor, o brilho das
+estrelas, fez também um seresteiro para
+conversar com elas..."
+IVAN (Falando com Varela) Tá legal, marca com o
+pessoal da comissão amanhã a gente chega uma
+hora antes pra acertar os detalhes. (Para Zeca)
+Se você não parar de cantar eu vou chamar a
+polícia!
+ZECA E porque é que você em vez de me encher o saco
+não vem aqui me ajudar a fazer o jantar? Essa
+tua cozinha é uma zona! Onde é que tem colher?
+IVAN (No telefone) Espera um instante, Varela. (Vai
+até a cozinha) Por isso é que os casamentos não
+dão certo - esse negócio de morar com outra
+pessoa é um inferno. "O inferno são os outros"!
+(Chegando na porta da cozinha) Já procurou na
+geladeira?
+ZECA (Jogando água na panela sem desgrudar das
+instruções do pacotinho) Não, na geladeira não.
+Ivan abre a geladeira e lá dentro vemos um único ovo, uma lata de
+cerveja e uma desolação total. Ele abre a gaveta de baixo e pega duas
+colheres, fósforos, um martelo, meia cebola, e um pé de sandália
+havaiana. Põe tudo em cima da pia.
+IVAN (Saindo e voltando pra sala) Vê aí o que você
+pode aproveitar. Preguiça de procurar é
+foda ... (Volta de novo até a sala e pega o
+telefone) Alô ... desculpe, Varela, mas é que
+eu tô fazendo o jantar ... Bom, mas seguindo
+esse raciocínio qualquer criança vai perceber
+que nenhuma classe na história alcançou o poder
+sem destacar seus chefes políticos avançados
+capazes de organizar o movimento e dirigilo ... (Despede-se de Varela e desliga o
+telefone)
+A campainha toca. Lá da cozinha, Zeca prova a sopa. A campainha toca
+ininterruptamente, Zeca vem correndo atender com a colher na mão.
+Abre, já com raiva, dá de cara com o índio. Leva um susto - tá tudo
+meio escuro - e logo desculpa-se pois reconhece o índio amigo de Nina.
+51
+ÍNDIO (Atrapalhado e lembrando-se) Puxa, é mesmo,
+sabe que eu tinha me esquecido? Entra, faz
+favor ... fica à vontade ... Senta aí (aponta
+um sofá horroroso, único móvel da sala) Eu tô
+cabando de fazer uma sopa lá dentro, venho já.
+Enquanto isso Ivan, na sala faz pra Zeca uma cara de espanto com a
+presença do índio como quem pergunta "o que quer dizer aquilo". O
+índio por sua vez senta-se no chão e fica lá, mudo, imóvel.
+ZECA (Vindo da cozinha, esbarrando com Ivan, dirigias se índio) Quer um cafezinho?
+ÍNDIO ...
+ZECA (Querendo ser simpático) Uma cachacinha...?
+ÍNDIO ...
+ZECA Um guaraná em pó! (Pega uma revista no chão) Ou
+quer dar uma olhadinha nessa Playboy? (mostra
+uma gatona nua)
+Índio sentado no chão e altivo não quer nada. Tá com cara de poucos
+amigos.
+ÍNDIO Nina... sete horas ... aqui.
+Zeca vai olhar no relógio quando bate a campainha. Zeca vai abrir
+entra Nina com suas roupas loucas, adereços indígenas, cabelão como a
+asa da graúna, arfando.
+NINA Ô meu amor, tô atrasada, né? É que eu tinha um
+apronto marcado com uma figura lá na Cinelândia
+mas o cara acabou não pintando. (Olhando em
+volta) Ué, que escuridão é essa?
+ZECA É ... cortaram a luz, mas eu já paguei a conta,
+amanhã vão religar. (Baixinho) Foi bom você
+chegar, eu já não sabia o que fazer pra
+enturmar aqui com o nosso amigo...
+O índio se levanta, ele e Nina se abraçam, ela também senta no chão.
+NINA Zeca, você tem que topar. Já falei com o Tuca e
+o Salvador, aliás eles devem estar pintando por
+52
+aí, achei melhor a gente combinar a viagem todo
+mundo junto.
+ZECA (Contrariado) Porra, Nina, você se precipitou,
+meu amor. Eu ainda não sei se vou poder ir ...
+aliás ainda não tô entendendo muito bem o que é
+que você quer fazer. Vem cá (senta-se também no
+chão) Me explica isso direitinho.
+NINA Mas o que é mais que você quer que eu te
+explique?
+NINA Zeca, a gente não tá querendo fazer um
+espetáculo tradicional, por isso é que a gente
+te chamou. É arte viva, improvisação em cima de
+um fato concreto. A gente tá querendo
+aproveitar a tua experiência como exjornalista. Os índios tupiripás (aponta pro
+índio Donato): essa tribo tá sendo aniquilada
+por doenças, pela birita e principalmente pelo
+roubo das terras. Vamos transformar esse drama
+num espetáculo ou numa peça ou num show. Isso
+também pode ficar por tua conta: a forma que a
+coisa vai ter.
+ZECA Mas o espetáculo vai ser lá na tribo deles?
+NINA E porque não? Só pode ser lá. Se fosse aqui
+seria um espetáculo tradicional, feito num
+teatro da Zona Sul, todo mundo sentado na
+cadeira, fumando nos intervalos, depois um
+barzinho e no dia seguinte ninguém mais ia
+lembrar dos tupiripás. Lá, não. Como nunca isso
+foi feito antes, fatalmente terá repercussão.
+ZECA Peraí que eu vou ver a sopa lá dentro que ela
+já deve estar secando (Levanta-se e vai indo
+até a cozinha) Mas vai falando que eu tô
+ouvindo.
+NINA (Indo atrás dele) Acontece que o povo dele tá
+dividido. Já foi tanto filho da puta lá fazer a
+cabeça deles que tem muitos que já são a favor
+da integração. Noutras palavras - tem uns que
+já pensam em aderir a uma economia baseada no
+lucro, a rejeitar seus próprios mitos, enfim,
+53
+exterminar sua própria cultura ... (Enquanto
+Nina fala, Zeca vai lhe passando pratos com
+sopa e ele vai levando um pro índio Donato,
+volta, pega outro, dá pra Ivan e fica com
+outro. Vai tomando a sopa e vai falando. Zeca
+também está comendo e ouvindo com atenção)
+A campainha toca e Zeca vai atender. Entram Tuca e Valfrido Salvador.
+Todos se cumprimentam carinhosamente.
+TUCA Sopinha jóia, hein?
+VALFRIDO Pode crer ...
+ZECA Pega um prato pra vocês lá na cozinha.
+IVAN (Cochichando com Zeca) Comunidade aqui, não.
+Pelo amor de Deus, Zeca. O sonho acabou.
+Zeca ignora a gracinha de Ivan. Tuca e Valfrido vêm da cozinha pegar
+uma vela porque a de lá se apagou e eles não tão achando a sopa.
+ZECA É, eu não tenho nada a perder, mesmo. Topo.
+Nina beija Zeca com alegria.
+Você, Nina, vê se descola uma câmera de VT pra gente gravar a viagem -
+depois a gente usa isso no espetáculo. Tuca e Valfrido vão levantar um
+material de pesquisa sobre a questão das terras indígenas e eu vou
+conversar com o Donato e a partir das informações que ele for me dando
+eu vou escolhendo as situações que a gente pode usar e desenvolver...
+Tuca e Salvador chegam da cozinha e escutam Zeca falar, com atenção.
+NINA (Eufórica) Seja bem-vindo ao reino da criação
+independente!
+ZECA É, acho que a única virtude que eu ainda
+aprecio é a de ser útil ...
+SALVADOR Mas que solene, meu Deus! Deviam tocar um
+clarim nesse momento!
+TUCA O mínimo que pode acontecer é a gente fazer um
+pouco de turismo na Amazônia. (Mudando de tom)
+Sério, a idéia da Nina é legal! A gente fica
+aqui nesse balneário, nessa pasmaceira ... Eu
+54
+tô cheio dessa coisa de ficar flanando. Eu
+quero ser ator, o que "cria, interpreta e
+representa uma ação dramática baseando-se em
+textos, estímulos visuais, sonoros ou outros
+previamente concebidos por um autor ou criados
+através de improvisações individuais ou
+coletivas. Utiliza-se de recursos vocais,
+corporais e emocionais, apreendidos ou
+intuídos, com o objetivo de transmitir ao
+espectador o conjunto de idéias e ações
+dramáticas propostas; pode utilizar-se de
+recursos técnicos para manipular bonecos, e
+congêneres; pode interpretar sobre a imagem de
+outrem. Ensaia buscando aliar sua criatividade
+à do diretor" (E aponta para Zeca)
+Todos riem da brincadeira de Tuca.
+ZECA Grande!
+O índio sorri.
+IVAN Vocês conhecem a piada do Zorro e do Tonto?
+Conhecem? O Zorro e o Tonto foram salvar uma
+tribo de índios de um ataque do exército. Mas,
+ao chegarem lá, os índios pensaram que o Zorro
+também fosse do exército e começaram a
+perseguir ele e o Tonto. Aí, diz o Zorro:
+"Tonto, acho que nós estamos perdidos" e o
+Tonto responde ...
+TODOS (Em côro) "Nós? Nós, quem, cara pálida?
+E todos riem da cara de Ivan que fica sem graça.
+SEQÜÊNCIA 17 - PRAIA - EXT/DIA
+41 graus nas areias de Ipanema. Na praia, em frente a Montenegro, é o
+lugar onde nossos heróis fazem ponto. Planos da praia com bicicletas
+estacionadas, rede de vôlei com gente jogando, frescobol, e um milhão
+e meio de pessoas por metro quadrado. É praia do desbunde, da
+sofisticação, dos malucos e dos artistas. Réplicas diurna do Bar
+Esperança. Sol a pino. Dia deslumbrante de verão. Todos os diálogos
+desta seqüência em off em cima de imagens loucas e engraçadas. Vozerio
+de povo e barulho de trânsito completarão a seqüência.
+55
+VOZ DE TUCA Deixa de ser babaca, Valfrido! Se o coração,
+que é feito de artérias e veias, pode falhar,
+porque que o pênis que também é feito de
+artérias e veias, não pode?
+VOZ DE
+VALFRIDO Olha aí, turma ... o pênis do Tuca teve um
+infarto!! (gargalhadas)
+VOZ DE
+ALGUÉM Tem soda?
+VOZ Não, mas aceito um tapa ...
+VOZ Olha os homis!!
+VOZ Aquele cara é cana.
+VOZ Azar o dele. Quero ver se tem cadeia pra
+guardar essa praia toda!
+VOZ DO
+PROFETA Cumequié, gente boa?
+VOZ DE TUCA Vou dar uma caída..
+VOZ DO
+PROFETA Se você gosta de cocô ...
+VOZ DE
+SALVADOR Porra, Profeta, dá um tempo - deixa o Tuca
+mergulhar ou você acha que com esse calor
+alguém tá ligando pra isso? Eu tô cagando ...
+VOZ DO
+PROFETA Pois é ... a idéia é essa ... conte até cinco:
+um, dois, três, quatro, cinco - nesta exato
+momento cinqüenta e quatro mil e novecentos
+pessoas acabaram de cagar!
+VOZ DE
+PASSARINHO Pegando uma corzinha, é, é babacas?
+VOZ DE ANA (Coquete) Como é que é, gente, posso chegar?
+56
+VOZ DE
+PASSARINHO Claro, chegue-se a nós, ô Bete Davis dos pobres
+...
+VOZ DE ANA Depende ...
+VOZ DE
+PASSARINHO De que, estrela da minha vida?
+VOZ DE ANA Do veneninho que você trouxe na tua linguinha,
+amor.
+VOZ DE MULHER Ei, olha ali a moça da novela. Aquela que vai
+entregar a carta.
+VOZ DE
+CRIANÇA Não é ela não, mãe ...
+VOZ DE MULHER É sim, quer ver?
+VOZ DE
+PASSARINHO Os comanches se aproximam ... tchan, tchan,
+tchan, tchan. Bete Davis, você está cercada.
+LOCUTOR
+RÁDIO CIDADE Como é que é rapaziada, agora com vocês a
+melô .....
+VOZ DE MULHER Berenice, é você ? Sabe que você faz tão bem o
+papel de má que parece que é assim na vida
+real?
+VOZ DE ANA Ah, obrigada ...
+VOZ DE MULHER Você me dá um autógrafo para o meu filho?
+VOZ DE ANA (Já Bodeada) Se a senhora tiver papel e
+caneta ...
+VOZ DE MULHER Como? Você não tem papel e caneta pra dar
+autógrafo?
+VOZ DE ANA Não, a senhora não tem uma xícara de açúcar pra
+adoçar meu limãozinho, que está meio amargo?
+57
+Risos, som da Rádio Cidade invadindo o papo, começa a tocar música
+tipo "Meu bem Meu Mal"
+VOZ DE TUCA Oi, Nina, tudo legal?
+VOZ DE NINA Legal ... (pausa, sobe música) Ainda essa
+música! Só que de tanto a gente ouvir na novela
+ficou insuportável ... televisão é foda ...
+58
+VOZ DE
+PROFETA Ô Russo, manda uma caipirinha dupla! Vem cá,
+como é que tá lá na Polônia? Ha, ha, ha tá
+russo, hein Russo?
+VOZ DE
+ARNALDO Como é que é, Profeta? Acha que tá agradando é?
+... (pausa) Mmmm, não acredito, é mesmo a deusa
+Moreno, em pessoa?
+VOZ DE ANA (Rindo) Oi, tudo bem?
+VOZ DE TUCA Ana, Arnaldo. Arnaldo, Ana ...
+VOZ DE
+ARNALDO De saída?
+VOZ DE ANA É, tenho que me mandar ... gravação, aquelas
+coisas ...
+VOZ DE
+ARNALDO Coincidência, eu também ... Cheguei e tenho que
+sair!
+VOZ DE ANA É? ... por que?
+VOZ DE
+ARNALDO Pra me preparar pra jantar com você hoje à
+noite ...
+Risos de Ana. Os dois começam a surgir do meio da multidão andando em
+direção à calçada. Ana, retraída, ri muito e disfarça a timidez.
+Arnaldo gesticula, faz charme, ataca firme.
+SEQÜÊNCIA 18 - APARTAMENTO DE ANA. INT
+Abre em close de Yuri, que fala cheio de raiva.
+YURI Eu odeio você, odeio! Você não presta!
+Corta para Ana que reage espantada. Yuri continua em off.
+YURI (OFF) Primeiro você destroi papai, agora quer
+destruir toda a nossa família?! Você é uma
+59
+víbora da pior espécie, Berenice! Eu te odeio e
+vou te odiar até o fim dos meus dias!
+Corta para Babita que lê as rubricas de um script.
+BABITA (Lendo) Berenice ri, cinicamente ... (fazendo a
+risada) Ha Ha Ha ... a música sobe, aumentando
+o clima de tensão ... close da mão de Berenice
+esmagando a rosa vermelha que tem nas mãos.
+Close da mão de Babita esmagando um sanduíche que está comendo,
+deixando cair ketchup no chão.
+ANA A Berenice sou eu, Babita, olha a sujeita que
+você tá fazendo! Não precisam interpretar por
+favor, tá?
+BABITA (Não dá a menor bola, continua lendo) Antonio
+Henrique anda de um lado para o outro, tentando
+segurar a raiva.
+Yuri anda de um lado para outro, fazendo tudo o que Babita vai lendo.
+BABITA Berenice continua com seu olhar cínico ... vai
+mãe, é você: "Tá nervoso, assim não dá!
+ANA "Tá nervoso, Antonio Henrique?"
+YURI Você ainda tem coragem de perguntar?
+BABITA (Lendo) Antonio Henrique sente o sangue subir à
+cabeça, caminha lentamente até Berenice e
+cospe-lhe na cara.
+Yuri caminha na direção da mãe, lentamente, armazenando saliva.
+ANA (De dedo em riste) Se me cuspir na cara fica
+três meses sem mesada ... não se atreva nem a
+pensar na possibilidade, Yuri.
+YURI (Depois de engolir a saliva) Ah, mãe! Você acha
+que eu ....?
+ANA Eu te conheço, ó ... (bate na barriga) desde
+que você tava aqui, meu anjo ... você é um
+artista.
+60
+BABITA (Bem debochada) Filho de peixe ...
+YURI Deixa de papo, lê aí, Babita.
+BABITA (Procurando no texto) Cadê ... Ah, táqui ...
+Cospe na cara dela: Berenice dá outra risada
+cínica ... (Faz a risada) Ha Ha Ha! (Mudando de
+tom, suspense) De repente eles escutam passos
+do outro lado da porta (Faz "sonoplastia" dos
+passos) corta para a porta que é aberta
+subitamente por Raul.
+Silêncio. Ana sabe que a sua personagem fala nesse momento, mas não
+consegue lembrar o texto.
+ANA (AFLITA) Ai, meu Deus, como é que é?
+BABITA (Lendo) Idiota! Você sempre chega na hora
+errada!
+ANA Idiota! Você sempre chega na hora errada!
+A campainha toca. Ana vai atender a porta.
+BABITA Então vamo lá ... eles escutam passos do outro
+lado da porta (Repete "sonoplastia") corta para
+a porta que é aberta subitamente por Raul.
+ANA (Abrindo a porta, mas ligada no texto) Idiota!
+Você sempre chega na hora errada!
+Do outro lado da porta está Arnaldo, o paquera da seqüência anterior
+(e acho que também de alguma seqüência do bar, anterior), que fica com
+cara de tacho com aquelas duas garrafas debaixo dos braços.
+ARNALDO O que que há? Não sou bem vindo?
+ANA (Sem jeito) Ô ... não é nada disso, é que estou
+ensaiando ... gravação amanhã, meus filhos
+estão me ajudando, e essa é uma frase do texto,
+não é nada com você, entra.
+Reação de Yuri e Babita que antipatizam com Arnaldo de cara.
+61
+ANA (Envergonhada com seus trajes caseiros) Tô tão
+desarrumada, não tava esperando ninguém...
+ARNALDO Você não disse pra eu aparecer qualquer hora?
+Fiquei com vontade de te ver, aí eu vim. Pra
+mim qualquer hora é hora (olhando-a nos olhos,
+sedutor) quando vale a pena, é claro ...
+Ana não sabe direito como agir, fica confusa.
+Já Arnaldo não sente o menor constrangimento, tá em casa.
+ARNALDO Trouxe um vinhozinho branco pra gente tomar,
+mas precisa dar um gelada, tá meio quente.
+Ana pega as garrafas da mão dele e saca a cara fechada das crianças.
+ANA (Imediatamente culpada) Eu não te apresentei
+meus filhos ... Yuri .... Babita .... esse é o
+Arnaldo, um amigo meu ...
+Arnaldo passa a mão na cabeça de Yuri que não gosta dessas
+intimidades.
+YURI Se me chamar de Yuri Gagarin xingo tua mãe e
+tua vó, falei?
+ARNALDO (Que não se intimida) Falou ... (tira chocolate
+do bolso e oferece à Babita) trouxe pra
+você ...
+BABITA (Virando as costas) Não, obrigado, chocolate me
+dá uma caganeira..!
+Reação de Ana, passada.
+YURI E papai disse que esculhamba os dentes ...
+ARNALDO (Segurando a barra) Põe na geladeira, Ana, pelo
+menos meia hora ...
+ANA Lógico ... claro ...
+Ana some no interior da cozinha. Corte Descontínuo. Passagem de Tempo.
+62
+Abre no detalhe da rolha saindo do gargalo. Arnaldo manuseia o sacarolha com maestria. Limpa a boca da garrafa com um guardanapo e serve
+dois copos, sozinho na sala.
+Chega Ana, que deu uma ajeitada na aparência.
+ARNALDO (Entregando copo à ela) Batom demorado!
+ANA A verdade feminina é um fato ... (Brindando)
+ARNALDO (Levantando o copo e olhando-a de alto a baixo)
+É .. é um fato ... por isso inclusive, que
+mulher é tão fascinante ... (Olhando-a nos
+olhos) fascinante...! À nossa!
+Bebem em silêncio. Arnaldo olha-a com intensidade, interesse, carinho
+e tesão. Ana sente e fica transtornada, com uma timidez de Annie Hall.
+Clima.
+ARNALDO (Reabastecendo o copo dele) Tudo bem?
+ANA (Sentindo-se corar) Tudo ... claro ... é
+que ... sei lá, eu ...
+ARNALDO Você acha que eu fui precipitado em vir assim?
+ANA Não, não ... eu
+ARNALDO (Cortando) Mas eu sou precipitado mesmo, é uma
+coisa minha que aceito com o maior orgulho, até
+como dizia um grande filósofo das areias de
+Copacabana, quem não se desloca não recebe e
+quem pede tem preferência! Eu sou assim: vou à
+luta! (Olhando-a nos olhos) claro que quando
+vale a pena ...
+ANA Um sujeito objetivo, né?
+ARNALDO Totalmente! Gostei de você, tô interessado, pra
+que fazer número? Mas você pode me mandar
+embora, numa boa, eu vou. Inconveniente é a
+última coisa que eu desejo ser para você.
+ANA Não é nada disso, Arnaldo, não quero que você
+vá embora ... pelo contrário ... realmente foi
+uma surpresa, eu não podia esperar, mas não
+63
+posso negar que me sinto até lisonjeada, faz
+bem pro meu ego, meu amor-própio ...
+ARNALDO Há quanto tempo você tá separada?
+ANA Uns dois meses, dois meses e meio ... e se quer
+saber, você é o primeiro homem que vem na minha
+casa.
+ARNALDO (Espantado) Você não saiu com ninguém em dois
+meses e meio??! Abstinência ou autopunição?
+ANA Não, até que eu saí, dei uma transada, aquelas
+coisas, fim de noite e tal, mas realmente não é
+isso que é importante agora, minha cabeça tá
+tão em outras coisas...
+ARNALDO Mas a cabeça não é desligada do corpo ...
+ANA É ....claro ... (Não quer dar bandeira)
+CORTA PARA:
+Ponto de Vista de Yuri e Babita que espreitam o casal pela fresta de
+uma porta da cozinha, fecham a porta com ar de conspiradores.
+YURI Não tô gostando do papo desse careta.
+BABITA Não vou chamar ele de pai nem que me torturem!
+Nem morta!
+YURI Cê acha que ela vai casar com um panaca desses?
+BABITA Sei lá, a gente precisa fazer alguma coisa.
+Yuri pega e gira a maçaneta cortando para:
+Arnaldo faz um suave carinho com as costas da mão no rosto de Ana, que
+vai relaxando cada vez mais.
+Arnaldo encosta seus lábios nos dela, meigo e furtivo. Ana fechando os
+olhos, languida.
+Arnaldo põe a mão na coxa de Ana, de leve. (Ana deve estar de saia).
+Lentamente vai subindo com a mão por dentro da saia de Ana, que sente
+um prêmito de desejo percorrer-lhe todo o corpo.
+Beijam-se finalmente. Daqueles beijos de cinema que ocupam toda a
+tela;
+64
+CORTA PARA:
+Reação indignada das crianças que espreitam novamente pela fresta da
+porta da cozinha.
+YURI Isso tá me cheirando à sexo...
+BABITA Sexo?
+YURI Vai dizer que não sabe o que é sexo?
+BABITA (Não tenho muita certeza) Claro que eu sei!
+CORTA PARA:
+Arnaldo rodeia os lábios entreabertos de Ana com a ponta de sua
+língua;
+ANA Vamos lá pra dentro?
+ARNALDO Depois desse beijo (E beija-a).
+Levantam-se. Câmera corrige até a porta da cozinha que se fecha
+silenciosamente.
+CORTA PARA dentro da cozinha.
+BABITA É aquele negócio de espermatozól, óvulos?
+YURI Não é esprmatozól, sua burra, é espermatozóide!
+BABITA Eu não quero outro irmão, não.
+YURI Isso não tem grilo, ela toma pílula.
+BABITA Pílula de que?
+YURI Pílula de não fazer irmão (impaciente), cê faz
+cada pergunta!
+CORTA PARA:
+No quarto de Ana, Arnaldo agarra-a mais uma vez. Aperta-a com força em
+seus braços, ela se sente bem. Batem na porta. Ana olha para a porta
+sem saco.
+65
+ANA Que é?
+YURI (OFF) Manhê, tô com fome.
+ANA (Tentando segurar) Yuri, meu amor, você sabe
+onde fica a cozinha?
+YURI (OFF) Que cozinha?
+BABITA (OFF) Mãezinha tô com uma dor de barriga! Que
+que eu faço?
+YURI (OFF) Faz cocô, ora!
+Ana não agüenta, abre a porta e dá com as crianças que estão com a
+cara mais sonsa do mundo. Ana sai do quarto, fechando a porta na cara
+de Babita que já estava entrando no quarto. Arnaldo senta na cama,
+tirando os sapatos com uma expressão ligeiramente cansada, antevendo a
+dificuldade da transação.
+CORTA PARA: Quarto das crianças. Ana fala séria. Babita e Yuri
+fingindo que não estão entendendo.
+ANA Nós já conversamos sobre isso, sobre a
+possibilidade disso algum dia acontecer. É
+normal, eu sou uma mulher separada, e não tenho
+a mínima vocação para a solidão. (Encerrando) E
+se vocês quiserem conversar mais sobre o
+assunto, ótimo, eu vou adorar, mas amanhã! E
+não adianta nem tentarem que vocês não vão
+conseguir me tiranizar! Fui clara?
+Babita dá de ombros e Yuri assobia olhando pro teto.
+Ana vai para o seu quarto. Arnaldo chama-a para a cama.
+ARNALDO (Carinhoso) Tudo bem?
+ANA Sob controle ... aparentemente.
+Recomeçam o clima do romance, reacendem o tesão, Ana se desvencilha da
+blusa. Pelas paredes ouvimos Yuri e Babita lendo o texto da novela.
+YURI (OFF) Berenice dá outra risada cínica. A porta
+é aberta subitamente por Raul.
+66
+Arnaldo, que tenta não ouvir, desabotoa o sutiã de Ana.
+BABITA (OFF) Idiota! Você sempre chega na hora errada!
+Reação de Ana. Corta rápido para:
+SEQÜÊNCIA 19 - BAR ESPERANÇA (VERNISSAGE) - INTERIOR - NOITE
+É a noite da já anunciada vernissage de Salvador, o arauto da "retroarte". Bar Esperança em festa. Música alta, pessoas elegantemente
+vestidas contrastando com outras de jeans, Prepúcio e outros garçons
+passando por entre os presentes com bandejas de bebidas e canapés,
+pessoas que não se viam há muito tempo se cumprimentam efusivamente e
+falsamente - enfim, tudo o que caracteriza esse tipo de encontro
+artístico-social. Todo o beautiful people presente, ao lado de
+críticos de arte, loucos, desbundados, artistas-para-sempre-anônimos,
+etc. Nossos personagens principais vão chegando aos poucos.
+Embora seja uma vernissage não há nas paredes do bar Esperança. Apenas
+setas brancas penduradas como quadros, indicando uma direção.
+Excitada, uma granfina comenta com outra:
+GRANFINA 1 Setas! Que bom gosto! Isso é pura arte Pop.
+Você conhece as setas do Andy Wharhol no Museu
+de Nova York?
+Mas antes que a outra responda, Passarinho, que tudo ouvia, se
+intromete:
+PASSARINHO Arte pop é catzo, ô babaca, essas setas tão só
+indicando a direção da exposição, idiota!
+Reação das granfinas sem graça que começam a andar na direção das
+setas.
+CORTA PARA Salvador, cercado de pessoas à sua volta, todos falando
+alto e de copo na mão, com ares inteligentes. Salvador está vestido
+com um terno branco, colete branco, camisa branca, sapato branco. Um
+cabeludo maricas aproxima-se dele:
+CABELUDO (Abraçando-o) Genial! Genial, Salvador. E você
+está super chic de branco.
+SALVADOR É que eu sou uma extensão dos meus quadros.
+67
+O cabeludo maricas dá um abraço sexy de aprovação na cintura de
+Salvador.
+CORTA PARA uma panorâmica dos quadros de Salvador e só agora vemos que
+a exposição acontece no mictório do bar porque os quadros estão
+pendurados nos azulejos da parede e dentro de cada compartimento,
+acima da privada.
+Os quadros são telas em branco, de tamanho variado, com o preço
+embaixo. Os menores custam 50.000,00 e os maiores 200.000,00. Em
+alguns está escrito ao lado vendido.
+As pessoas andam pra lá e pra cá fazendo comentários.
+Entra no mictório uma velhinha de aspecto bizarro, lembrando a Dona
+Benta do Sítio do Pica-Pau Amarelo, só que com um ar meio gaiato.
+CORTA PARA Salvador, que no meio da roda em que está comenta:
+SALVADOR Engraçado, parece que eu conheço essa senhora
+de algum lugar, mas não é possível. Eu devo
+estar louco ...
+A velhinha vai olhando os quadros em branco atentamente, até que pára
+ao lado de uma gatona com ares existencialistas que está há horas
+olhando fixamente o maior deles. A velhinha pergunta:
+VELHINHA Gosta?
+GATONA (Laconicamente) Adoro.
+VELHINHA É? ... Por que, hein?
+GATONA Porque é uma discussão sobre o vazio, sobre o
+limbo, numa região onde não existe dor nem
+alegria, apenas a contemplação e o sentimento
+Zen de integração com um todo. É ao mesmo tempo
+primitivo e atômico, nascimento e morte,
+momento intermediário, susto e perplexidade ...
+A velhinha tira um lenço da bolsa, enxuga a testa e afasta-se
+imediatamente e rapidamente da gatona estratosférica.
+CORTA PARA Salvador que, depois de observar de novo a velhinha,
+reconhece-a e ai até ela correndo.
+68
+SALVADOR (Chegando nela e falando baixo pra disfarçar)
+Cabelinho, que idéia é essa? Por que é que você
+tá com essa roupa maluca?
+CABELINHO (No mesmo tom) Foi o único jeito de vir à tua
+festa. Cotinha hoje tá de ovo virado. Me
+trancou em casa e eu tive que subornar a
+empregada pra poder sair. É claro que ela vem
+aqui me procurar mas duvido que me
+reconheça ...
+CORTA PARA Zeca e Nina que estão conversando num canto.
+ZECA O Salvador é um cara-de-pau, mesmo - inventar
+essa exposição!
+NINA Por que?
+ZECA Pelo amor de Deus, Nina, você não está levando
+isso a sério. Isso tudo é só pra ele morrer de
+rir depois.
+NINA Não sei, acho que na verdade ele quer dizer
+alguma coisa com isso ...
+ZECA Não! Até você?!!
+CORTA PARA dois caras também cochichando num canto:
+CARA I Vai você primeiro, então ...
+CARA II Rapaz, tô te dizendo, não tem nada, vamo lá que
+você vai ver ...
+CARA I Sei lá se aquilo é uma escultura? Pode pegar
+mal...
+CARA II Escultura o cacete, isso aqui é um banheiro, eu
+tô apertado e aquilo é um mijador de metal - e
+caguei pro mundo, quer ver só?
+Cara II vai até o mijador, desvencilhando-se do Cara "I" que tenta
+impedi-lo. A gente vê ele de costas fazendo xixi, olhando em volta,
+vendo que não provocou reação nenhuma. Olha então para o Cara "I" faz
+sinal de "positivo" pra ele o Cara I vem correndo seguir seu exemplo.
+Ao vê-los, uma maluca comenta com seu namorado (Os dois com pinta de
+quem está viajando de ácido):
+69
+MALUCA Que barato! Um happening! Misturar os sucos
+vitais com a obra de arte! Esse Salvador é um
+gênio ...
+NAMORADO (Dracão) Pode crer ...
+CORTA PARA rodinha em torno de Salvador onde ele está explicando:
+SALVADOR (Pedante) A idéia é lembrar às pessoas que
+existe um marco zero na arte. É lembrar o
+começo, o nada, a revolução do zero, ou seja, o
+momento de onde tudo parte. Acho que isso é uma
+obsessão em qualquer artista plástico...
+TIETE QUE
+ESTÁ EM
+VOLTA Extraordinário, Salvador, se eu tivesse
+dinheiro levaria todos. Infelizmente só poderei
+ficar com um dos menores.
+Salvador sorri indulgente.
+Mas nesse instante, um senhor que estava de costas para a rodinha, não
+se contém, vira e fala, nervoso. Ele usa um óculos fundo de garrafa e
+tem tiques.
+SENHOR Escuta aqui, ô Sr. Salvador. Fique sabendo que
+pra mim o senhor não é nem Salvador Daqui, nem
+Dali nem de parte alguma. O senhor é um engodo,
+uma fraude e eu lamento ter que ouvir tanta
+asneira dessa gente burra que, coitados,
+apreciam isso que o senhor ousa chamar de arte!
+(Apopléctica) Isso é um insulto à sensibilidade
+de um ser humano! Isso é um deboche! E foi
+muito boa idéia expor essa coisa num banheiro
+porque realmente é - com perdão às senhoras
+presentes - uma merda!
+SALVADOR E quem é o senhor?
+SENHOR Sou crítico de arte do Planeta Diário e ...
+Cotinha irrompe pelo mictório adentro e Ana junto com Arnaldo vem
+atrás tentando segurá-la. Ela está transtornada, com cara de quem vai
+fazer um escândalo.
+70
+ANA Cotinha, por favor, calma ...
+COTINHA (Aos gritos empurrando todo mundo, como quem
+procura) Cadê o Cabelinho? CABELINHO!!! Eu sei
+que tu tá aqui, desgraçado, aparece,
+infeliz!!!!
+Ana tenta acalmá-la inutilmente. A essa altura todos pararam e Cotinha
+dá seu vexame em solo.
+COTINHA Ele está escondido em algum lugar, esse
+miserável! Mas deixa estar que hoje eu vou me
+vingar.
+Cabelinho vestido de velhinha, num canto, sua frio. Prepúcio ao seu
+lado, tentando escondê-lo.
+COTINHA (Dá um grito) Aparece, CÃO!!! (Espera um tempo.
+Silêncio) Ah, é? Tá bem, foi você que pediu.
+(Cotinha começa a desabotoar a blusa que está
+vestindo, Ana interfere, ela continua) Não Ana,
+eu disse a ele que na próxima vez que ele
+viesse pra cá sem me avisar eu ia fazer um
+strip-tease. Vou fazer e acabou-se ( E arranca
+a blusa)
+A situação vai se descontraindo. As pessoas começam a aplaudir Cotinha
+que agradece os aplausos e continua se despindo. Depois da blusa, a
+saia, depois o sutiã - alguém começa a cantar o "Homem do Brasil de
+Ouro" e Cotinha começa a agir como uma verdadeira "stripper". O show
+começa a esquentar e depois de alguns segundos o grande sucesso da
+noite é Cotinha.
+Cabelinho, vestido de velha, sem poder fazer nada, sua frio e cutuca
+Prepúcio entredentes:
+CABELINHO Faz alguma coisa, cretino! Ela vai me
+arruinar!!!
+Prepúcio que está gostando do show e aplaudindo também, replica:
+PREPÚCIO Deixa a morena dançar, Cabelo, tu também não é
+nenhuma flor que se cheire ... (E continua
+aplaudindo Cotinha).
+CABELINHO Judas Escariotes, você me paga, filho da puta!
+71
+Salvador aproxima-se disfarçadamente de Cabelinho e dá-lhe uma bronca
+disfarçando.
+SALVADOR Olha aqui, Cabelo, isso não vale! A vernissage
+é minha e quem dá o show é tua mulher?! Essa
+não! Dá um jeito dela parar senão ninguém mais
+compra quadro! ...
+CABELINHO (Arrasado, enterrando a cabeça nas mãos) Não
+posso, não posso, se ela me vir assim me dá um
+tiro (e solução)
+O crítico do Planeta Diário está agora conversando com um admirador de
+Salvador, explicando-lhe:
+SENHOR Isto sim, é a verdadeira arte ... (Admirando o
+strip de Cotinha) É a Body Art (Fala aos
+gritos e puxa aplausos)
+Alguém de porre grita lá de trás:
+ALGUÉM Eu compro! Eu compro! Quanto custa esse quadro?
+Frenessi geral. Cotinha, vendo o quanto está agradando, agora está
+mais glamurosa ainda.
+CORTA PARA Ana que conversa com Arnaldo, num canto.
+ANA Essa é demais! (Rindo) Arnaldo, a Cotinha -
+você pode não acreditar - mas é a mulher mais
+bem comportada e submissa que eu conheci na
+minha vida ...
+ARNALDO (Rindo) É maravilhosa, ela! Genial! Nunca vi
+vingança mais engraçada na minha vida!
+ANA Vamos sair daqui um pouco, meu amor? Tô
+sufocando no meio dessa multidão.
+Ana puxa Arnaldo, saem do mictório do bar e vão para o salão levando
+seus copos. O salão está quase vazio, poucas pessoas nas mesas, e,
+numa delas, Zeca e Nina estão sentados. Ana vê de longe Nina se
+despedir de Zeca deixando-o sozinho na mesa. Ana desvia o olhar e se
+fixa em Arnaldo.
+72
+ANA (Brincando) E faça o favor de se comportar
+porque senão eu vou seguir o exemplo da Cotinha!
+Esse é o quinto chope que você toma!
+ARNALDO Se você fizer um strip tease público eu vou ser
+o primeiro a aplaudir! (Faz um carinho no rosto
+de Ana)
+ANA Sabe, você é uma experiência nova pra mim...
+Nunca transei com ninguém assim ... tão ...
+tão ... liberal. Também, tantos anos com uma
+pessoa só ... E o Zeca, não é que ele fosse
+propriamente um cara ciumento mas ...
+ARNALDO (Sério) Eu não gosto dessa coisa de ciúme. O
+amor entre duas pessoas adultas só pode ser o
+encontro entre duas liberdades. Deus me livre de
+você deixar de transar com alguém por minha
+causa! Eu estou apaixonado por você e o teu
+prazer é o meu prazer também. Não quero que você
+se sinta amarrada a mim, porque também eu não
+estou amarrado a você. Acho que se a gente
+pensar e agir assim, o nosso relacionamento tem
+futuro.
+ANA É ... claro ...
+ARNALDO (Dando um beijinho em Ana) Meu amor, antes do
+quinto chope vou fazer pipi e já volto, tá?
+Arnaldo se levanta, ambos sorriem.
+CORTA PARA Zeca que de sua mesa viu que Ana está sozinha. Zeca vai até
+a entrada do bar e põe "stardust" com Willie Nelson. Volta e, já meio
+trôpego, vai até ela. Ela sente a aproximação e se prepara, na
+defensiva:
+ANA (Ao vê-lo chegar - lacônica) Oi, Zeca.
+ZECA (Ainda de pé, apoiado com as duas mãos na mesa
+dela) Ex-marido ainda tem algum direito?
+ANA Nenhum, Zeca.
+ZECA Mesmo assim eu não posso ficar quieto vendo
+você fazer besteira!
+73
+ANA (Começando a se zangar) Como besteira, Zeca?
+Que história é essa?
+ZECA (Despejando) Ana, esse cara não é homem pra
+você. É um outro universo, outra cabeça,
+entende? É uma pessoa que não se liga a
+ninguém, tem mil mulheres ao mesmo tempo.
+ANA E quem é você agora? Irmã Paula? Você nunca foi
+disso, Zeca ...
+ZECA Ana, esse cara leu meia dúzia de livros de
+Reich e acha que é a Revolução Sexual
+personificada ... Ele não está namorando você,
+está namorando uma tese...
+ANA Zeca, não tô interessado na opinião que você
+tem dele ...
+ZECA Mas talvez esteja interessada em saber que ele
+é casado e parece que a mulher dele é genial.
+ANA (Levou um susto e está sem ação. Gagueja)
+Não ... não deve ser, Zeca, senão ele teria me
+falado. Ela é uma pessoa liberal, não tem
+porque esconder ... (Mas Ana não consegue
+disfarçar sua surpresa)
+ZECA Justamente, Ana, por ser liberal, ele acha que
+te contar isso é irrelevante. Aí um dia ele te
+apresenta à mulher - que - todo mundo diz, é
+uma pessoa legal e de quem ele nem sonha se
+separar. Eu tô só preparando o teu espírito.
+ANA Eu não quero que ninguém se separe por minha
+causa, Zeca e (começa a chorar enquanto fala)
+eu não quero que você NUNCA MAIS, mas NUNCA
+MAIS se aproxime de mim pra me ajudar, se você
+acha que isso é ajudar. Tem mais, eu mudei
+muito, você não me conhece mais, não sabe mais
+o que eu penso, o que eu sinto, muito menos o
+que eu espero de um relacionamento com um
+homem. (Indignada) Me deixa em paz, Zeca, me
+esquece e muito obrigada por ter estragado
+74
+minha noite!! (Ana levanta-se num repelão sai
+chorando em direção à porta.)
+Arnaldo que estava cagando avista Ana sair correndo e alcança-a na
+porta do bar. Ela o abraça com força e ele lhe dá vários beijos, nos
+olhos, no pescoço, na boca, sem fazer perguntas mas solidário e
+carinhoso.
+Zeca que observa tudo, sozinha, da mesa, sente-se pior ainda e percebe
+o fora que deu.
+CORTA PARA Final da Seqüência 19.
+Zeca, na fossa, bebe sozinho. Chega Passarinho sempre agressivo.
+PASSARINHO Ah, sei, tás aí fazendo caras de intelectual
+fingindo que tem vida interior intensa, né?
+Vocês não passam de uma caganita humana que se
+vende pra televisão.
+ZECA Poupa meu saco, Passarinho ... Eu já me despedi
+da tevê.
+PASSARINHO Ah, sei, tás aí fazendo caras de intelectual
+independente fingindo que tem peito pra saltar
+fora do sistema, né? Não passas de um chefe de
+família burguesa e oportunista.
+ZECA Eu me separei da minha mulher, Passarinho. Vê
+se me esquece, tá?
+PASSARINHO Ah, sei, tás agora fazendo caras de intelectual
+liberado e homem vivido, aberto às novas
+experiências sexuais reichianas, né? Não passas
+de um machão latino, devasso, castrado e
+castrador.
+ZECA Ô, Passarinho, te conheço há vinte e cinco
+anos. Se você é meu amigo me deixa em paz aqui
+com a minha birita.
+PASSARINHO Ah, sei, fazendo caras de intelectual com
+grandes problemas existenciais que aparecerão
+na sua própria peça de teatro, né? Sou teu
+amigo mas você continua sendo um bundão.
+75
+ZECA (Explodindo) Ô Passarinho, poupa-me da tua
+amizade, tá? Poupa-me da sua amizade!!!
+PASSARINHO Ah, sei, fazendo caras de intelectual de
+geração perdida, fingindo que é agressivo e
+vingador, né? Seu Hemingway de merda!
+ZECA Que praga, você, Passarinho ... Eu tenho que
+sair daqui, sumir, desaparecer, não agüento
+mais! Vocês todos!
+PASSARINHO Ah, sei, fazendo agora caras de intelectual
+marginal e metido a ecologista, anarquista,
+fingindo de feminista, livre e selvagem, né?
+ZECA Porra, não há guarda chuva contra você, hein,
+Passarinho?!
+PASSARINHO Ah, sei, citando poema de João Cabral de Melo
+Neto pra posar de sensível e bem informado, né,
+ô babaca?!
+ZECA Já entendi. Só tem uma saída. Há anos você
+provoca isso. Vamos sair na porrada! (Pessoas
+em volta vendo a discussão e o desafio)
+PASSARINHO Ah, sei, posando de intelectual que toma
+resoluções dostoievskyanas e vitais, ô babaca?!
+ZECA Mas não vamos brigar aqui no bar, não. Aqui tem
+a turma do deixa-disso e separa a briga. Vamos
+num lugar deserto, sair na porrada firme, até
+um dos dois não agüentar mais levantar do chão.
+Vamos lá! Agora vamos lá! (Pessoas olham, não
+sabem se intervêm ou não, deixam-nos sair)
+(Zeca já empurrando Passarinho para fora do
+bar).
+PASSARINHO Ah, sei, fazendo caras de cowboy contido e
+valente que explode, né, ô babaca?!
+SEQÜÊNCIA 19-A - RUAS E PRAIA - EXTERIOR - NOITE
+Zeca andando firme e decidido, Passarinho atrás dele. Andam por várias
+ruas. Param. Olham-se desafiadores.
+76
+ZECA Não, aqui não. Ainda tem gente que pode separar
+a briga. Quero te arrebentar num lugar
+sossegado!
+Zeca anda mais apressado e decidido. Passarinho segue-o (Andam por
+outras ruas. Às vezes param, olham-se com ódio, seguem) (Chegam à
+praia. Os dois param. Planos gerais dos dois na praia deserta. Eles
+pulam para a areia. Andam em direção ao mar. Param).
+ZECA Então é isso mesmo, né, Passarinho?
+Passarinho olha Zeca na defensiva.
+ZECA Como é que é? É porrada mesmo que você procura?
+Passarinho olha Zeca na defensiva.
+ZECA Como é que é, ô porra?
+Passarinho calado, na defensiva.
+ZECA Você é um fascistinha de merda. Cadê tua
+agressividade agora? (Vai se exasperando) Como
+é que é? Olha não dá pra te arrebentar assim a
+frio. Me dá uma porrada na cara! Pra me subir o
+sangue! Vai! (Expõe a cara) Dá! Dá uma porrada
+na minha cara! (Passarinho olha-o sério).
+Porra, você não é ninguém (Zeca explode) É uma
+cabeça fascistinha rondando pelos bares! (Zeca
+chuta areia, há uma cesta de lixo preto, Zeca
+corre e chuta o lixo, chuta muitas vezes, tenta
+destruir a cesta de metal. Não consegue.
+machuca-se Zeca Transtornado).
+Você é um merda. Eu sou um merda, isso aqui
+tudo é um imenso cagalhão! Tudo isso é fraude,
+é mentira, é hipocrisia - vocês, nós todos,
+vocês pensam uma coisa, falam outra e fazem uma
+terceira! Tudo bundão! Todos nós somos uns
+bundões! Chega de mentir! Tudo bundão
+mentiroso! Nós somos a caricatura de nós
+mesmos!
+Planos gerais dos edifícios da orla da Vieira Souto. A praia imensa
+vazia. O mar. A voz de Zeca aos gritos. Volta a plano próximo dos
+dois. Passarinho, perplexo, olha Zeca que chora desesperado, na areia,
+77
+no meio do lixo da lata. Fica um tempo assim. Passarinho tenta fazer
+um gesto de se aproximar de Zeca mas é incapaz. Plano geral. Os dois
+parados na praia entre o mar e os edifícios. Ao longe os soluços de
+Zeca. Volta plano próximo. Zeca se recompõe.
+ZECA Troço mais ridículo ... Quanta babaquice ...
+Tudo babaquice, caricatura ...
+Zeca se aproxima de Passarinho, de repetente. Passarinho assusta-se e
+faz um gesto de defesa. Zeca ri.
+ZECA Não é nada não, ô meu irmão em babaquice. É só
+pra evitar o vexame. Todo mundo viu a gente
+sair pra brigar. Então vamos voltar com cara de
+quem brigou.
+Zeca despenteia Passarinho aos tapas, rasga-lhe a camisa, abre e
+decompõe sua própria camisa e seu próprio cabelo.
+ZECA Vamos embora, que você não é nada.
+Andam de volta à calçada. Calados. Sobem a calçada.
+PASSARINHO Ah, sei, agora estás fazendo caras de
+intelectual desesperado que não tem nada a
+perder na vida ...
+Zeca olha-o com ódio. Depois começa a rir, gargalhadas, morre de rir.
+Passarinho olha-o sério. Zeca, chorando de tanto rir, abraça
+Passarinho e vão os dois, bêbados, atravessando a Vieira Souto, de
+volta.
+ZECA (Às gargalhadas) É ... Vamos voltar pro bar,
+mesmo. É o nosso refúgio ...
+SEQÜÊNCIA 20 - APTO DE IVAN - INTERIOR - DIA
+No banheiro, o editor faz a barba frente ao espelho. Na sala, Zeca
+arruma coisas da viagem: maletas, embornais, capangas, objetos mil,
+uma desordem geral.
+IVAN O que você está fazendo não passa de uma
+explosão emotiva, pequeno-burguesa, egoísta,
+voluntarista, infantil. És o que, agora? Um
+Marechal Rondon da cultura?
+78
+ZECA Você também, poupe-me da sua amizade, cara ...
+IVAN (Ao espelho, encarando-se altivo) Você não quer
+mudar o mundo, quer é quebrar o brinquedo que
+nem uma criança barulhenta. Você está brigando
+com o seu pai.
+ZECA (Arrumando as coisas) Quem sabe de mim sou eu.
+IVAN Zeca, a verdadeira mudança só pode ser feita
+quando todas as forças vivas da nação se
+levantarem numa invencível frente única das
+oposições, percebe?
+ZECA Vocês não se emendam ...
+IVAN (Discursa para o espelho) Um dia todo o povo
+organizado derrubará as oligarquias e sentará
+vitorioso no lugar que lhe cabe.
+ZECA Não vai dar todo mundo ...
+IVAN (Ivan está no auge do arrebatamente) Olha-se
+fixamente ao espelho. Sua expressão vitoriosa
+vai cedendo até tornar-se uma cara de enfado,
+um rosto alquebrado. Ele se olha, depois abre a
+gaveta sob o espelho, pega uma pistola, aponta
+para a própria fronte. Olha-se sério. Um tempo.
+Cara seríssimo, sentido. Dispara. Faz click!
+Ele guarda a pistola e segue fazendo a barba,
+quase alegre, como se nada tivesse acontecido.
+Na sala, o tempo todo, o índio Donato toca a sua flauta num canto.
+Zeca escreve à máquina, desiste, joga fora os papéis. Zeca disca,
+telefona. Ana atende do outro lado.
+ANA Alô ... (Pausa) Alô! Fala quem é ô idiota!
+Fala!
+Zeca querendo falar sem conseguir. Ela desliga. A televisão de Ivan
+está ligada e o índio Donato vê agora um filme de selva que está
+passando. Ele se interessa. Fica vidrado.
+ZECA Ele não pode ver selva que ataca-lhe o
+banzo ...
+79
+Zeca telefona de novo. Aparece Ana irritadíssima ouvindo
+ANA Alô! Alô! (E desliga)
+IVAN Se você é babaca o suficiente pra telefonar pra
+tua mulher porque então não fala com ela de uma
+vez?
+ZECA Não liguei pra ela não ...
+IVAN Claro que não ... Babaca ... Pedindo pinico ...
+Entra Nina cheia de embrulhos.
+IVAN O que é isso aí?
+NINA Uma câmera de video-tape. Tudo em cima, Zeca?
+ZECA (Desanimado) Tudo ...
+NINA Qual é o grilo?
+IVAN Ele está com saudade da mulherzinha e
+vacilando.
+ZECA Vacilando está a sua mãe.
+O índio Donato recomeça com a flauta.
+IVAN Ai, não tenho saco pra folclore ingênuo!
+ZECA (Sorrateiro, no telefone) - (Calado, ouvindo)
+ANA Alô! Alô! Quem é, ô imbecil?!
+ZECA (Disfarçando a voz) Você vai mesmo entregar
+aquela carta ô sua filha da puta?!
+SEQÜÊNCIA 21 - APTO DE ANA MORENO - INT. NOITE.
+Ana está deitada na cama ao lado de Arnaldo. Clima trepada. Os dois se
+amam. O telefone toca e Arnaldo, com ódio, pula por cima de Ana e pega
+o telefone aos berros:
+80
+ARNALDO ALÔ!!! (Logo muda de fisionomia) desculpe ... é
+pra você ... (Entrega o telefone para Ana).
+Arnaldo, visivelmente aborrecido, acende um cigarro. Ana pouco fala,
+responde monossilabicamente uns "sei, sei ...", mas aos poucos vai
+ficando séria. Arnaldo, com tesão, se impacienta.
+ANA Tá legal, Ricardo, não precisa se desculpar ...
+tudo bem - fica pra outra! Tchau!
+Ana desliga o telefone, arrasada.
+ARNALDO O que é que houve?
+ANA Era o Ricardo dizendo que o novo produtor da
+peça escolheu a Letícia Bueno pra fazer o papel
+que eu ia fazer ...
+ARNALDO Ué ... mas não estava tudo certo? você não
+assinou contrato?
+ANA Que contrato! Como sempre eu acredito nas
+pessoas e depois danço, claro!
+ARNALDO (Se levantando e indo para a sala colocar um
+disco) Mas qual a razão, o Ricardo disse alguma
+coisa?
+ANA ... que o novo produtor disse que precisava de
+uma estrela para garantir o retorno do
+investimento, como sempre!!! que eu sou muito
+boa atriz, sou muito conhecida, coisa e tal,
+mas que sem uma grande estrela ele tem medo de
+por a grana.
+Arnaldo acabando de colocar o disco, e voltando para o quarto.
+ARNALDO Mas o Arnaldo não escreveu o papel pra você?
+ANA Escreveu, e daí? A grana fala mais alto! (Muda
+de tom) Me desespera essa idéia de que eu
+preciso ser estrela pra fazer uma peça boa, ou
+um bom filme!
+ARNALDO (Sentado na cama, ao lado dela) E porque não
+ser uma estrela? Se quiser posso ser seu
+81
+empresário ... (Arnaldo abraça Ana, que tenta
+evitar. Na vitrola, Roberto Carlos começa a
+cantar - "ai, eu vim aqui amor, só pra me
+despedir ...)
+ANA Não brinca, Arnaldo ... eu tô falando sério!
+Acho babaquice esse negócio de estrela ... e o
+pior é que eu avisei aos caras da TV que eu não
+ia renovar contrato por causa desta peça, pode?
+Arnaldo não se contém, e avança sobre Ana. Ana a princípio reluta, mas
+depois se entrega. De repente ela saca a música que está tocando na
+vitrola e corre até a sala para desligar a vitrola. Volta para a cama,
+e se joga nos braços de Arnaldo.
+SEQÜÊNCIA 22 - BAR. INT. NOITE
+Bar com poucos fregueses, tipo 8 horas da noite. Numa das mesas estão
+Zeca, Yuri e Babita. As crianças jantam, felizes e excitadas por
+estarem no bar, acompanhadas do pai. Prepúcio está acabando de servir
+chope e guaraná. Babita fala:
+BABITA O senhor vai ficar muito tempo?
+ZECA Não sei ... um mês, dois talvez ... eu não
+estou pensando na volta ...
+YURI Vai ganhar muita grana, pai?
+ZECA Para de pensar em grana o tempo todo,
+menino ... É a tua mãe que anda enfiando isso
+na sua cabeça? (Muda de tom) Eu não vou por
+causa de dinheiro ... é um trabalho novo que me
+interessa; vou a lugares que eu nunca vi,
+trabalhando com gente que eu gosto, é isso!
+Estou a fim de mudar, começar tudo de novo ...
+BABITA ... esquecer mamãe ... (sorri)
+ZECA E quem te disse que eu ainda estou apaixonado
+pela tua mãe? (os dois olham para Zeca sem
+acreditar em suas palavras) é ... também é pra
+esquecer tua mãe ...
+82
+Galocha ao ver as duas crianças na mesa, encosta e já manda uma
+cascata.
+GALOCHA Olha aí, tou vendendo carteira falsificada pra
+menor freqüentar os botecos, vai levar?
+ZECA Se manda, Galocha!!
+Galocha sai apregoando suas mercadorias.
+GALOCHA Revistinha pornográfica - pílula anticoncepcional, olha aí, leva tudo na minha mão!
+BABITA Pai, todo mundo que vem aqui é maluco?? ...
+YURI É sim! ... Aqui, por exemplo, tem um maluco que
+põe nome maluco no filho!
+ZECA (Indignado, para Babita) Quer dizer pro seu
+irmão, esse "geninho", que Yuri é o nome do
+primeiro cara que foi lá em cima olha a terra
+de longe? E sabe o que é que ele descobriu? Que
+a terra é azul!
+YURI E daí? Isso é razão para alguém se chamar Yuri?
+Zeca vai responder mas não consegue. E vendo a
+inutilidade daquela conversa, volta a beber seu
+chope. Babita interrompe o silêncio:
+BABITA Pai, posso pedir um favor?
+ZECA O que?
+BABITA Já que você vai viajar, não dá pra você
+adiantar logo a nossa mesada..??
+Zeca vai brigar com a filha, mas desiste, vira-se e grita:
+ZECA Prepúcio!!! A nota!
+SEQÜÊNCIA 23 - APTO ANA MORENO - INT. NOITE
+Ana e Arnaldo na cama, acabam de trepar. Clima de relaxamento. Ana se
+enrosca no corpo de Arnaldo, beijando-o. Carícias. Ana dengosa e se
+espreguiçando, acende a luz e fuma um cigarro. Arnaldo tenta uma outra
+83
+carícia, mas é docemente repelido por Ana. Tentativas, brincadeiras,
+etc.
+ANA ... não Arnaldo, eu não quero mais ...
+ARNALDO Só mais uma ... (Cara de pidão)
+ANA (Um pouco irritada com a insistência) ... eu
+não quero mais Arnaldo ... tudo bem!!
+Arnaldo se levanta para colocar a roupa. A campainha toca. Ana coloca
+um robe, e vai a sala abrir a porta.
+ANA É o Zeca com as crianças ... (sai) Corte
+Na sala, Ana abre a porta. Parada, está uma mulher de seus trinta e
+poucos anos, olhando Ana, fixamente. Ana se encabula e a mulher
+pergunta:
+MULHER O Arnaldo está?
+ANA (Sem entender muito) Quem quer falar com ele?
+MULHER (De cabeça baixa, impassiva) Diz a ele que é a
+Lúcia ...
+Nesse momento Arnaldo está chegando na sala, abotoando a camisa.
+Espanto com a presença da própria mulher. Ana saca, e arrasada, se
+encosta junto a um móvel. A mulher fala:
+MULHER Desculpe Arnaldo ... eu tentei resolver sozinha
+mas não consegui ... o Beto não está bem ...
+crise de asma ... como eu estou sem carro; a
+essa hora ... vou precisar de você ...
+Arnaldo com cara de panaca, fica sem ter o que dizer. Finalmente fala.
+ARNALDO Claro... vamos lá ...
+Arnaldo antes de sair, faz uma cara envergonhada, tipo "eu não tenho
+culpa" e fala
+ARNALDO Desculpe, Ana ... (e sai junto com Lúcia)
+Ana fica ali em silêncio, perplexa, constrangida, e sem forças. Doída.
+84
+SEQÜÊNCIA 24 - BAR - INT NOITE
+O bar está agitado como sempre. Os personagens de sempre. Numa das
+mesas estão Cotinha e Cabelinho. Ela completamente nua e ele vestido
+de velhinha. Os dois se amam e conversam. Numa outra mesa estão Ana e
+Ivan Guerra. Ana está se lamentando.
+ANA Crise braba, seu Ivan; crise braba!
+IVAN Sentimental ou artística?
+ANA Tudo!! Fim do casamento, fim da peça, fim do
+teatro, fim de caso ... eu estou num beco sem
+saída ...
+IVAN Ótimo, bendita crise a sua! A gente só recomeça
+quando chega ao fim. (Carinhoso) está na hora
+de mudar, Ana - começa agora!
+Ana acaricia a mão de Ivan, agradecendo o apoio. Bebe um gole e
+continua a falar:
+ANA Claro, eu vou sair dessa ... (Muda de assunto)
+e o profeta que não chega ... eu tou louca pra
+ver esse cassete.
+IVAN Está com saudade do Zeca?
+ANA Claro que estou; eu gosto do Zeca - ele é pai
+dos meus filhos, e tá há um mês sem mandar
+notícias, eu tenho que estar curiosa...
+IVAN Eles mandaram o cassete pra redação, o Profeta
+deve estar chegando ... (Muda de assunto) Eu
+gosto do Zeca. Meio porra-louca, mas eu gosto
+dele ... Está sempre explodindo, sempre em
+movimento; não se acomoda nunca!
+ANA (Sentiu as palavras de Ivan) É ... eu acho -
+que puni o Zeca com muito rigor...
+Nesse momento Arnaldo se aproxima da musa. Ana percebeu mas finge que
+não vê. Ivan continua falando.
+IVAN Não ... você não conseguiu foi harmonizar as
+diferenças ... é difícil, Ana! As pessoas
+85
+exigem que o parceiro seja o modelo fiel
+daquilo que eles sonharam .. e depois se
+desiludem ... isso não existe! A tarefa mais
+difícil pra duas pessoas que se amam, é superar
+essa fantasia, viver o outro como ele é -
+harmonizar as diferenças, Ana!!! Corte.
+Mesa de Cotinha e Cabelinho. Os dois continuam se namorando. Voz off
+do Ivan -
+IVAN (OFF) Vê só o Cabelo e a Cotinha ... eles
+conseguiram harmonizar as diferenças ... estão
+felizes! (Rindo)
+Ana sente as palavras de Ivan. Bebe um gole e olha para o relógio,
+impaciente. No balcão do bar, Prepúcio está acabando de arrumar o
+video-cassete. Passarinho (bêbado como sempre) passa cantando:
+PASSARINHO "Afiei meu canivete
+no capim barba do bode
+faz tempo que nóis não mete
+faz tempo que nóis não fode..."
+PREPÚCIO Vai pra casa, seu Passarinho!
+PASSARINHO Que casa ... quem tem casa é marimbondo, ô
+idiota!!
+E segue feliz seu caminho. Na mesa de Ivan e Ana, Galocha acabou de
+sentar.
+GALOCHA (Roubando uns salgadinhos) Licencinha, D. Ana
+vou descansar as pernas ... é uma batalha!!!
+(Se refastelando)
+IVAN Tem remédio pra dor de corno, Galocha?
+GALOCHA (Respondendo de um salto) Não, mas vou lançar
+amanhã nesta birosca, a maior invenção do ano.
+Os dois, rindo, se interessam. Galocha continua:
+maletinha pra comunista fugir !!!
+(Gargalhadas) É verdade! Dentro tem: escova de
+dentes, pasta, toalha, um pinico e o Capital!
+sabe como é né, a barra pode ficar pesada de
+86
+repente, é sempre bom a rapaziada ficar
+preparada, né?
+A porta se abre e Galocha entra com a fita cassete na mão, gritando:
+PROFETA "Tchan, tchan tchan tchan..."
+Todos aplaudem. Profeta se encaminha para o balcão levando a fita.
+Preparativos para a exibição. Cadeiras são colocadas em volta do
+balcão. Tudo pronto, surge a imagem. No vídeo, surgem Zeca, Tuca e
+Valfrido. Estão num pedaço de floresta na margem de um rio. Junto com
+eles estão o Índio Donato e mais dois índios (aculturados) três homens
+e duas mulheres. Pelo aspecto, estão exaustos de uma longa marcha. Uns
+sentados, descansando, outros fumando um cigarro pra relaxar.
+Mosquitos incomodam bastante. Fadiga e suor. Zeca está com o
+microfone; no lado estão Tuca e Valfrido. Nina opera a câmera de V.T.
+NINA Atenção ... gravando !! (OFF)
+ZECA (Cansado, mas orgulhoso) Boletim n° 1 do
+Grupo ... (dar o nome do grupo) diretamente do
+interior do Estado de Mato-Grosso. Essa região
+tem o nome de Barra do Mateus e se estende por
+uma área de 150 mil km2: dentro desta área está
+a reserva dos índios Tupiripá.
+agora Valfrido fala:
+VALFRIDO E é pra lá que nós vamos!!! É lá que o
+grupo ... (Dá o nome do grupo) vai estreiar o
+seu próximo espetáculo - "BOLETINS
+BRASILEIROS". Pela primeira vez um grupo de
+artistas apresenta o seu trabalho numa aldeia
+de índios. (Vai se entusiasmando)
+Zeca interfere:
+ZECA É bom lembrar também, que o espetáculo é sobre
+os índios ... Tuca, apresenta as pessoas que
+estão conosco ...
+TUCA (Pegando o microfone) Esse é o padre Achilles,
+da prelazia de São Mateus que vai nos
+acompanhar até a aldeia dos Tupiripás. Aquelas
+são duas religiosas que trabalham com padre
+87
+Achilles. O senhor tem alguma coisa a dizer a
+respeito da nossa proposta de trabalho, padre?
+PADRE Não sei ainda ... é no mínimo curioso! O
+importante, é não usar o índio como objeto de
+uma sofisticação cultural ... (Zeca interrompe,
+apresentando outro homem)
+ZECA ... este é o jornalista João de Castro, da
+Revista Careta de Cuiabá, que vai documentar
+pra sua revista o nosso trabalho ...
+JORNALISTA O que o padre Achilles estava querendo dizer é
+que os índios Tupiripás é que devem ser os
+beneficiados - pelo trabalho de vocês. Quanto
+mais vocês divulgarem o drama dos Tupiripás,
+melhor pra eles. É preciso - que cada
+brasileiro conheça a tragédia das populações
+indígenas ... (o último homem interrompe)
+HOMEM ... pra vocês terem uma idéia, a superfície
+total - dessa área é de 150 mil km2, pois bem;
+foi vendida no cartório dessa região uma área
+de 200 mil km2!!! É o que nós chamamos de
+"superposição de títulos de propriedade"! Mas
+ela não podia ser vendida, ela pertence aos
+Tupiripás ... é importante divulgar isso! (Nina
+avisa que a fita está acabando)
+ZECA Esse é o Dr. Angelo, advogado da Pastoral do
+Estado - que está assessorando o Padre Achilles
+e os índios Tupiripás - De Barra do Mateus,
+interior de Mato-Grosso - Boletim n° 1 do Grupo
+(Diz o nome do grupo) (Fala pra Nina) deixa eu
+dar um recadinho Ivan: pede ao Cabral, do
+Fantástico, pra ele usar esse material no
+programa, e pede
+ao ..."KYLIXCVRTPKOIUL"CPOIU...
+A imagem desaparece. TV é desligada. Gargalhada geral no Esperança.
+Profeta fala:
+PROFETA A Nina, como câmera-man é um número; se
+continuar assim - esse vai ser o último
+boletim!!! (Rindo)
+88
+IVAN (Com raiva) Bando de babacas!!! Não sabem que a
+luta - dos índios faz parte de uma luta maior:
+a luta pela mudança da sociedade! Enquanto não
+mudar o sistema, o problema do índio vai
+continuar...
+ANA (Com raiva) Enquanto isso, eles vão se fudendo,
+né? Tu já gosta de um discurso, hein?
+PREPÚCIO Cala a boca, Ivan! Você não consegue nem mudar
+a cueca, quanto mais mudar o sistema!
+Passarinho que resmungava num canto, interfere:
+PASSARINHO Pobres! Estão sempre falando de pobres! Eu
+tenho a solução pra acabar com a pobreza: basta
+encher o Maracanã de água, e jogar todos eles
+lá dentro ... acaba a pobreza!!!
+Ivan sai enfurecido.
+IVAN Eu vou embora ... o nível está muito baixo!
+Os dois homens que estavam na mesa com D. Esperança, levantam e se
+despedem. Ana fica sozinha na mesa, observando Cotinha e Cabelinho.
+Depois de algum tempo, resolve ir até a mesa deles. Ana senta.
+ANA Posso sentar? (Cotinha está dando mil beijos de
+agradecimento em Cabelinho) Estou atrapalhando?
+COTINHA Claro que não ... senta! (para Cabelinho) Você
+é o melhor marido do mundo ...
+CABELO Tudo bem, não precisa puxar meu saco...!
+ANA O que é que houve?
+COTINHA É que eu fui convidada para estrelar uma
+campanha publicitária pro Brasil inteiro: TV,
+jornal, revista, tudo, durante seis meses. Mas
+eu preciso aparecer nua, e o Cabelinho não
+queria deixar ...
+CABELINHO No bar ainda vá lá, mas pro Brasil inteiro ...
+e ainda por cima propaganda de papel higiênico,
+pode? (Ana ri)
+89
+COTINHA O que é que tem? Vai ficar bonito ... eu, nua,
+coberta de papel higiênico que vai se
+desprendendo do meu corpo, com o vento, e o
+locutor falando - "MAGENTA uma brisa passando
+pelo seu corpo", - não é bonito?
+CABELINHO É ... vai virar estrela ...
+Ana sorri, admirada com o casal.
+SEQÜÊNCIA 25 - ESCRITÓRIO DO CHEFÃO DA TV. INT. DIA
+Ana Moreno entra flutuante na ante-sala do chefão da TV. Está
+lindíssima: cabelos soltos, boca e olhos maquiadíssimos, um vestido
+leve e decotado que cai sobre o corpo como um papel Magenta que
+Cotinha descrevia na cena anterior. Mal vê a secretária. Dirige-se
+para a porta do gabinete de Baby. O assinante tenta detê-la.
+ASSISTENTE Ana! Você tinha marcado com ele? ... espera um
+pouquinho que ...
+ANA (Impassível, como uma estrela) Pode deixar, não
+precisa avisar ...
+Dirige-se para a porta de Baby e abre. (Corte)
+Cara de surpresa de Baby que lia uns papéis por trás de sua mesa de
+acrílico. Vários monitores ligados. Escritório luxuosamente decorado.
+Ana está dramaticante parada à porta, pose de estrela que vai
+enfrentar o palco do Carnegie Hall. Pausa. Sorriso. Fecha a porta por
+trás dela.
+BABY Ana Moreno! (Levanta-se em direção a Ana) Só
+mesmo você ... entrar aqui desse jeito (faz
+uma cara de gozação) Veio me trazer a famosa
+carta?
+ANA (Dirigindo-se a ele com um ar muito casual)
+Pois é ... nada de muito dramático ..., só uma
+visitinha, a gente nunca se vê.
+Ana caminha um pouco, reconhecendo o gabinete de Baby, tocando em uma
+estátua, uma planta, e joga-se no sofá, cruzando as pernas, com uma
+cara muito blasé.
+90
+ANA E aquela sua adega fantástica? Não vai me
+oferecer uma vodka daquelas bem geladinhos?
+Baby parece não perceber a cena, sorri, vai até o bar e serve uma
+vodka. Entrega o copo a Ana e volta para a sua mesa, como quem espera
+o início do espetáculo.
+Ana toma uns dois ou três goles seguidos, entremeados de sorrisos e
+olhares para os monitores. Baby, impassível, espera, mexendo numa
+caixinha que muda constantemente as imagens dos monitores, consultando
+papéis.
+ANA (Decidida) Olha, Baby, vou abrir o jogo com
+você. Eu sou uma boa atriz. Você sabe disso, o
+público sabe disso. Meu papel na novela rendeu
+muito mais do que vocês imaginavam. Agora, acho
+que chegou a hora de ...
+O telefone toca interrompendo o discurso de Ana. Baby atende, ainda
+olhando pra ela, vai mudando de cara e ficando furioso.
+BABY Sei, sei ... sei ... mas eu já disse, está uma
+merda ... Tavares, merda a gente não salva,
+Tavares. Merda a gente dá descarga, latrina
+abaixo ... Desmancha tudo, joga fora e bola um
+outro cenário. E tem mais, demite o Soleno e
+aquela equipe de merda!
+Baby desliga o telefone com força, vira-se para Ana, sorrindo
+suavemente.
+BABY Desculpe, meu anjo ... você tava dizendo ...
+Retomando a pose, descruza as pernas e caminha pela sala, copo na mão,
+despejando charme.
+ANA Pois é... eu acho que chegou a hora de definir
+minha posição aqui ... Eu acho que não estou
+sendo bem aproveitada, que não sou uma atriz de
+papéis secundários. Eu sei que vocês ainda não
+decidiram o papel principal da novela das oito.
+Sei que vocês estão entre dois nomes: o meu e
+um outro. E eu quero esse papel, não sei se a
+outra quer tanto quanto eu, mas eu quero. E
+acho que vocês devem investir em mim. Vocês
+estão sempre precisando de uma estrela, não
+estão? Então!
+91
+Ana está acendendo um cigarro, com pose de Joan Crawford, é
+interrompida por Baby, que se levanta ao seu encontro.
+BABY Ana ... será que você ainda não sabe que eu
+odeio fumaça de cigarro?
+ANA (Representando e fazendo charme) Você não vai
+pedir a uma estrela que apague o cigarro, vai?
+BABY (Rindo) Tá bem, hoje você pode, tá?
+Ana solta uma baforada, bebe mais um gole de vodka, sustenta a pose e
+retoma o discurso.
+ANA Baby, vocês ainda não perceberam, mas eu sou a
+estrela que vocês precisam. Sou uma puta atriz,
+tenho garra, por que não?
+O telefone toca outra vez, Baby se inclina para atender por cima da
+mesa, Ana próxima a ele. Enquanto Baby fala, Ana começa a perceber que
+o cigarro virou um problema. A cinza está crescendo e ela não acha um
+cinzeiro. Esbarra em Baby, se enrola no fio de telefone procurando um
+cinzeiro em cima da mesa. Baby fala quase rosnando no telefone, "sei,
+sei", "Claro que não" "eu já disse que esta merda não vai pro ar
+desse jeito" enquanto acompanha as buscas de Ana, até que desliga o
+telefone, aperta o botão do interfone e berra para a secretária:
+BABY Dona Matilde, arranja um cinzeiro para dona
+Ana. É. Um cin-zei-ro
+Baby desliga o interfone, Ana dá um sorriso de charme, percebe a gaffe
+do cigarro, bebe um gole de vodka pra concertar e se engasga.
+Baby já percebeu a jogada, ri, e tenta dissuadir Ana:
+BABY Tá legal, Ana, já sucumbi ao teu charme ...
+(muda de tom). Olha, sou teu amigo há dez
+anos ... é impressão minha ou você veio aqui
+dar pra mim pra conseguir um papel na novela da
+oito? Não acredito, você não é disso!
+Vai empurrando delicadamente em direção à porta, enquanto fala. Ela
+começa a cair do tipo. A secretária entra com o cinzeiro, ela se
+atrapalha mais ainda: agora é o copo, o cinzeiro, o cigarro e o carão
+de Baby.
+92
+BABY O papel nem está definido ainda, muita coisa
+vai mudar ... Olha, tou indo pra Nova York, na
+volta a gente conversa ...
+Ana, já completamente desarmada, tenta negar.
+ANA Olha, Baby, você tá trocando os canais ... eu
+nem de longe ...
+BABY (Ainda levando Ana) Tá legal, eu me enganei ...
+a gente fala depois ... Ah, e o Zeca? (Ri) Diz
+pra ele que ele tem razão, nós somos loucos
+mesmo ... (Ri outra vez, segura Ana pelos
+ombros com um ar paternal) ... mas o lugar dele
+é aqui, ele pode voltar quando quiser.
+Baby empurra Ana suavemente pela porta afora.
+BABY Juízo, hein, menina.
+Dá um tapinha carinhoso no rosto de Ana que esboça um sorriso sem
+graça.
+SEQÜÊNCIA 26 - BAR - INTERIOR - NOITE
+No interior do bar, lotado, começa a correr o boato e que o bar foi
+vendido e vai fechar. As pessoas não acreditam. Umas mais nervosas,
+outras céticas, outras tristes, outras bolando uma festa pro
+fechamento. E há uma turma que discute que providências tomar pro bar
+não fechar - liderando a turma está Ivan Guerra. Ana está presente
+junto com Galocha e Passarinho. Ivan, aos berros, faz um discurso:
+IVAN Eu vou falar com o Albino ... deixa comigo ...
+ele vai conseguir do Governador o cancelamento
+da venda do Esperança! Esse bar é um patrimônio
+- cultural da cidade - não pode ser negociado
+como uma mercadoria qualquer!
+Todos aplaudem Ivan. Delírio no bar. Ivan se empolga:
+mais uma vez a cultura brasileira é ameaçada, -
+companheiros ... é preciso dizer BASTA! ...
+93
+Nesse momento a porta do bar se abre, e entram Cabelinho e Cotinha.
+Ela vestida com um casaco de pele e ele, como sempre, com roupa de
+velha. Os dois estão molhados da chuva que cai lá fora. A platéia ao
+ver Cotinha vestida, grita em coro:
+GALERA "TIRA - TIRA - TIRA"
+Cotinha, ignorando os apelos da turma, se encaminha para mesa de Ivan,
+desfilando como uma estrela, seguida por Cabelinho orgulhoso. - Na
+mesa de Galocha está falando:
+GALOCHA Nós fazemos uma barricada aí na porta, ninguém
+vai conseguir entrar ...
+PASSARINHO Ótimo ... eu bebo todos os barris!
+ANA Pois eu acho que devia fechar mesmo ... e devia
+fechar com uma tremenda festa!!!
+Cotinha e Cabelinho sentam na mesa. Cumprimentos, abraços. Cotinha ao
+saber do fechamento do Esperança, protesta:
+COTINHA Mas não podem fechar! A gravação do meu
+comercial foi toda bolada em cima do mictório do
+Esperança ... se ele acabar perde a graça!
+Cabelinho consola Cotinha. Passarinho dá força a Ana.
+PASSARINHO Eu também acho que uma festa é a melhor
+homenagem que a gente faz ao Esperança ...
+A discussão esquenta. Ivan acusa todos de reacionários porque só
+pensam em festa e não defendem a cultura. Galocha propõe fazer um
+leilão da gravatinha borboleta do Prepúcio. A platéia continua pedindo
+para Cotinha tirar o casaco. Cotinha, dengosa, acena da sua mesa como
+uma estrela, recusando polidamente. O Profeta entra correndo no bar e
+se encaminha para a mesa de Ana. Senta ofegante e fala:
+PROFETA Ana, chegou um telex no jornal dizendo que -
+houve uma confusão com o espetáculo do pessoal,
+- na tribo dos índios.
+Nervosismo na mesa. Ana quer saber de mais detalhes: Profeta continua
+falando.
+94
+O pessoal da sucursal diz que as informações -
+são confusas ... falam também no
+desaparecimento do grupo de artistas ... o
+pessoal do telex vai telefonar pra cá, quando
+chegar mais notícias.
+Silêncio e expectativa na mesa. Cotinha percebe e resolve desanuviar o
+ambiente. Sobe em cima da mesa, e gloriosamente, deixa cair o casaco
+de pele. A platéia aplaude, delirantemente, a nudez de Cotinha.
+SEQÜÊNCIA 26-A - PRAIA - EXT - DIA
+Esta seqüência é a continuação da seqüência anterior; como se a praia
+fosse uma extensão do bar. A discussão continua: fechamento do
+Esperança e desaparecimento do grupo de artistas. Enquanto os diálogos
+continuam em off, as imagens mostram: mulheres lindas, ginástica de
+velhos, cachorros fazendo xixi, tudo que - possa definir o cenário
+exótico da Montenegro. Som musical dos milhares de radinhos de pilha
+ligados na praia.
+CORO DE VOZES OFF "A PRAIA - UNIDA - JAMAIS SERÁ VENCIDA!!!"
+VOZ OFF de Ivan A luta pelo Esperança é a luta
+pelas liberdades democráticas!!!
+VOZ DE ALGUÉM Cala a boca, babaca!
+VOZ DE IVAN Babaca é a mãe!
+Voz em off de uma mulher qualquer
+Tira a mão daí, Ricardinho ... mamãe - tá
+olhando !!!
+RICARDINHO (OFF) Deixa neném ... (Voz de tesão) a gente
+cobre com a toalha ... ninguém vai ver ...
+MULHER Ai, Ricardinho ... ai... (gozando)
+VOZ DE ANA Até agora, nada; nem a FAB e nem a FUNAI
+conseguiram localizar o grupo!
+VOZ DE MULHER Mas uma semana é muito tempo, menina!
+PASSARINHO (OFF) Vai ver... já morreram...
+95
+ANA (OFF) Vai a meda, Passarinho!!
+IVAN (OFF) É isso mesmo, Ana! Eles são uns otários!
+(Rindo) "O Exército Brancaleone da Cultura
+Brasileira!!!"
+ANA (OFF) Deixa de ser escroto, Ivan; você sabe que
+deu certo ... a imprensa não fala de outra
+coisa ... os homis mandaram abrir inquérito pra
+apurar as denúncias ... Os Tupiripás viraram
+discussão nacional, claro que deu certo!!!
+A discussão aumenta. Loucura geral. De repente, do meio daquela
+multidão, emerge um enorme arroto, como se apaziguasse os ânimos. A
+platéia delirando, aplaude.
+SEQÜÊNCIA 27 - CASA DE ANA MORENO - INT. DIA
+Na casa de Ana, uma equipe de TV faz uma entrevista com a atriz. Quem
+comanda é uma repórter. Quando a cena começa, a entrevista já está no
+meio. Ana está sentada num sofá tendo Yuri e Babita ao lado.
+REPÓRTER Mais uma pergunta, Ana ... quem são as pessoas
+que fazem parte do grupo (Dá o nome do grupo)
+ANA Nina Saraiva, Tuca Martins, Valfrido Salvador e
+o Zeca, que você e os tele-expectadores já
+conhecem ... Os quatro fundaram o grupo, e, -
+eles mesmos bolaram o espetáculo ...
+REPÓRTER ... pra índio (!!??)
+ANA E por que não? Eles achavam que, enquanto
+artistas, podiam realizar um trabalho que
+servisse à causa dos índios!
+REPÓRTER (Virando-se para os espectadores) Pois eu acho
+que serviram ... o drama dos Tupiripás é
+manchete dos principais jornais do país, no dia
+de hoje. (Volta-se para Ana) Mas se não servir à
+causa indígena, pelo menos o sucesso do grupo
+está garantido! Fala-se que grandes empresas
+estão interessadas em ter o grupo sob contrato,
+é verdade isso?
+96
+ANA (Visivelmente aborrecida com a pergunta) Não sei
+... ainda não tem nada certo! O importante é
+descobrir onde eles estão ... e eu aproveito e
+faço daqui um apelo às autoridades pra que não
+interrompam as buscas.
+REPÓRTER (Virando-se para a Câmera e interrompendo - Ana)
+É isso aí minha gente ... dois meses depois
+continua o drama do desaparecimento do grupo (Dá
+o nome do grupo) !!! Bom dia e até amanhã ...
+dentro do nosso quadro no programa - ALÔ MULHER
+- Até lá!
+SEQÜÊNCIA 28 - BAR - INTERIOR - NOITE
+Bar Esperança enfeitado com bolas de gás. Batucada. Apitos. Gente com
+chapeuzinhos de papel na cabeça. Clima de festa e algazarra. Pessoas
+andando pra lá e pra cá. Uma enorme faixa com os dizeres: "O BAR
+ESPERANÇA NÃO FECHARÁ". Câmera desce e mostra no meio do zum-zum-zum,
+um agrupamento de mesas que lembra uma espécie de comitê eleitoral -
+com uma urna de lona pendurada na frente. Sentados atrás das mesas
+estão Cabelinho e Profeta. Os dois, agitados, mexem em papéis, dizem
+frases em voz alta, slogans que protestam contra o fechamento do bar.
+Saúdam Ivan que entra com Ana.
+IVAN (Curioso) Como é que tá o movimento?
+CABELINHO Acho que vamos vencer. A maioria já aderiu à
+resistência. Vão ter que demolir o bar com a
+gente aqui dentro!
+Planos de pessoas recolhendo assinaturas. Uns assinam, outros não. Os
+que não assinam ridicularizam a tal resistência.
+ANA Ivan, pelo amor de Deus, quer parar com essa
+palhaçada? Eu vou embora pra casa!
+IVAN Fica aí, meu amor, sossega o facho! Eles não
+vão aparecer só porque você voltou pra casa.
+ANA Mas eu tô nervosa. Não agüento essa confusão.
+Entra Passarinho.
+97
+PASSARINHO É barricada, é? Faz com barril de chope que eu
+bebo ela todinha ...
+Ivan se levanta da cadeira e brada:
+IVAN Companheiros, estamos aqui para mais uma
+manifestação de protesto contra a prepotência!
+O fechamento do Bar Esperança é um ato
+arbitrário, contra as liberdades democráticas e
+contra a mais pura tradição do povo brasileiro!
+Cabelinho e Profeta puxam aplausos e a multidão dentro do bar dá
+urros, alguns vaiam, zoeira geral. Ana, desanimada, senta-se numa mesa
+próxima. Galocha passa apregoando:
+GALOCHA Senhoras e senhores, não percam essa
+oportunidade! São os últimos bilhetes para a
+rifa da gravata borboleta do Prepúcio. Por
+quinhentas pratas qualquer um pode ser o feliz
+proprietário dessa raridade! (E exibe a gravata
+borboleta toda ensebada de Prepúcio)
+Ana acha graça, abre a bolsa pra tirar o dinheiro enquanto Galocha sai
+atropelando as pessoas com sua pechincha.
+Prepúcio aproxima-se de Ana.
+PREPÚCIO Sinto ter que desalojá-la, senhorita, mas
+preciso dessa mesa.
+Prepúcio arrasta a mesa para o centro do bar onde, ligando várias
+mesas, ele está fazendo um enorme "L" em cujo centro está um bolo
+iluminado para uma espécie de "Ultima Ceia" para os habitués do bar. O
+ti-ti-ti continua a mil. Todas as ações se desenrolam ao mesmo tempo:
+o comitê contra o fechamento do bar continua seus discursos, Galocha
+continua vendendo rifas, Prepúcio arrumando mesas etc.
+Cotinha adentra o recinto ruidosamente.
+COTINHA Povo do Esperança! Cheguei! E tenho o prazer de
+apresentar-lhes meu último show!
+Cotinha sobe na grande mesa em forma de L e começa a tirar a blusa. A
+multidão aplaude freneticamente. Prepúcio vai até a vitrola
+rapidamente e coloca um disco de mambo tipo Perez Prado. Cabelinho vai
+até lá e pára o disco. Todo mundo vaia.
+CABELINHO Cotinha, meu bem, por favor, hoje não, tá?
+98
+COTINHA (Excitada, de cima da mesa) O Esperança vai
+fechar? Pois hoje eu também vou fechar... e com
+chave de ouro!
+Mas Cabelinho não deixa, começam a discutir, o pessoal em volta se
+mete, confusão.
+Cabelinho arrasado, pede a Prepúcio.
+CABELINHO Dos Deuses, me arranja um coquetel nocaute.
+Corta para Ana que de sua cadeira observa, quieta, aquela confusão
+toda. Ana olha o bar e toda aquela gente com ternura, com nostalgia. O
+som vai sumindo. Só vemos as imagens das pessoas excitadas, o correcorre, milhões de coisas acontecendo, mas em som. É o ponto de vista
+de Ana. A câmera olha através do olhar de Ana. E esta cena vai se
+fundindo com cenas antigas do bar. Ana tem os seguintes flashes:
+(SEQ. 1) Quando Zeca a observa Zeca de longe, manda-lhe
+um beijo e sussurra: "Eu te amo".
+Galocha vendendo "Discret" na porta do banheiro das mulheres.
+(SEQ. 9) Quando Nina lhe pergunta: "Continua torturando
+o Brasil, Ana, por causa daquela famigerada
+carta?"
+(SEQ. 1) Quando ela e Tuca caminham entre as mesas
+segurando seus copos de chope e ela pergunta:
+"Espetáculo pra índio?"
+(SEQ. 9) Quando ela diz: "Olha, Zeca, eu vou me embora.
+Vou pra casa, minha casa. Você, por favor,
+arrume um outro lugar pra dormir, tá legal? Pra
+mim chega!
+Passarinho, de porre, puxa um samba canção:
+"Aço frio de um punhal foi teu adeus pra
+mim..."
+(SEQ. 19) Quando Cotinha faz seu primeiro strip-tease.
+Quando Zeca diz a ela que Arnaldo é casado.
+De repente Ana acorda de seu devaneio com um grito de Galocha.
+99
+GALOCHA Atenção, rapaziada, vai rodar a rifa (Ele fala
+de cima da mesa em "L" que de repente virou um
+palanque pra quem quiser se manifestar - e
+descobre, num passe de mágica aquela gaiola
+redonda de metal, cheia de bolinhas numeradas.
+Dá várias rodadas enérgicas. Suspense. Abre a
+janelinha. Cai uma bolinha. Ela via olhar mas
+alguém lá de atrás grita): BINGO!!!
+É Zeca que entra, seguido por Tuca e Salvador. Estão num estado
+deplorável. Sujos, com roupas maltrapilhas, descabelados, barba
+crescida, picados de mosquitos. Mas sua expressão é de enorme
+felicidade. Salvador tem um tucano no ombro.
+TODOS Zeca! Salvador! Tuca! O que que houve! Não é
+possível (etc, etc)
+Todos correm para abraça-lo. Os quatro são cercados e carregados nos
+ombros da multidão. Aplausos, beijos, batucada, assovios etc.
+Ana, surpresa, emocionada, fica indecisa se deve correr até lá ou não.
+Acaba se decidindo: vai correndo abraçar Zeca mas não consegue porque
+ele sumiu na avalanche de abraços. Ela fica meio perdida tentando
+chegar lá, rindo, feliz, até que avista o Tuca. Abraça-o, beija-o,
+depois beija Salvador, os três se abraçam ao mesmo tempo, embolados,
+caem por cima das cadeiras etc. Prepúcio já foi pagar uma super rodada
+de chope e está trazendo os copos. Gritaria. Cunfusão. Zeca conseguiu
+sentar a duras penas no centro da mesa em "L". Todo mundo senta em
+volta para ficar perto dele. E quando chegam os chopes faz-se um
+brinde entre todos que lembra a imagem da Última Ceia. Galocha bate
+uma foto Polaroid.
+Passarinho, totalmente de porre, vira-se para Zeca e diz:
+PASSARINHO Já lhe vi em algum lugar, não sei se numa
+carranca de chafariz ou num cabo de guardachuva!
+D. ESPERANÇA (Para Salvador) Cadê a Nina?
+SALVADOR Ficou por lá. (Todos riem)
+TUCA Ela é maluca mesmo.
+CORTA PARA Zeca e Ivan que começam uma conversa. As pessoas vão se
+dispersando pelo bar. Tuca e Salvador vão sentando em outros lugares
+pra contar suas histórias. Salvador exibe seu tucano orgulhosamente.
+100
+IVAN Olha, não vou discutir contigo. Você é meu
+amigo, eu achei que você tinha morrido, você
+não morreu, eu tô feliz por isso, então vamos
+beber! (Levanta seu copo de chope para Zeca,
+fazendo um brinde).
+ZECA Nem tem muito o que contar. A barra pesou lá
+com o negócio de uma cabana ter pegado fogo e a
+gente teve que se picar. Aí nos embrenhamos
+pela floresta e de repente a gente se perdeu.
+Mas graças a Deus e o pessoal da FUNAI recebeu
+um aviso por um rádio amador e acabou um avião
+da FAB encontrando a gente. Mas até a gente
+saber disso foi foda.
+IVAN Águas passadas, companheiro. E eu prometo que
+ainda deixo você morar na minha casa se você
+prometer que nunca mais vai sair daqui pra
+fazer outra besteira dessas.
+ZECA (Olhando sério pra Ivan) Ivan, eu gostaria que
+você soubesse que eu não me arrependo
+absolutamente de ter ido. Ao contrário, me
+sinto muito melhor agora. Saí desse espacinho
+restrito em que a vida da gente circula. Me
+sinto mais vivo, pode crer. Por que é que isso
+te ameaça? Porque é que ninguém aqui quer
+correr risco? E mesmo que a gente tivesse feito
+um papelão, o que é que tem? Pelo menos a gente
+deu assunto pra vocês conversarem, pelo menos
+agitou a cabeça de vocês. É muito fácil
+ridicularizar quem arrisca uma experiência nova
+quando a gente fica parado, bundão, no mesmo
+lugar.
+IVAN Ué, então se foi essa maravilha, por que é que
+você não ficou lá?
+ZECA Não seja simplista, Ivan. Foi legal, e tudo.
+Mas meu lugar não é só lá. (Seu olhar cruza com
+o de Ana) E ter ido serviu inclusive pra eu ver
+que posso ser mais útil aqui. Mas foi lá que eu
+entendi isso direito, sacou?
+Nesse instante chega Tomás, o sub-chefe da televisão. Tomás está
+simpático (ao contrário das outras vezes em que apareceu). Salvador
+101
+aproxima-se curioso quando o vê chegar na mesa de Zeca. Ana continua
+observando.
+TOMÁS Ivan, dá cá um abraço, ô bichão! Folgo em vê-lo
+são e salvo!
+Espanto de Zeca.
+TOMÁS Soube que você chegou e vim correndo te dar as
+boas-vindas e te fazer uma proposta. Quer ouvir
+sentado ou vai ficar de pé?
+ZECA Por que?
+Passarinho e Ivan, atentos, têm um ar de deboche. Ana continua
+observando, Salvador também.
+TOMÁS O Baby teve uma idéia genial. Ele quer
+transformar a aventura de vocês numa série pra
+televisão tipo "Dramática Aventura de Artistas
+Perdidos na Selva"! Não é legal?! Vocês
+voltariam lá, fariam o mesmo espetáculo e
+depois se perderiam em meio aos perigos da
+Amazônia!
+ZECA Pra mim não dá, Tomás.
+TOMÁS Vamos esquecer os rancores, Zeca ... É legal
+pra emissora e pro teu grupo!
+ZECA Aí é que está. Nós não somos um grupo. Cada um
+tem sua cabeça, sua vida. Pra mim não dá.
+Pergunta pros outros, pode ser que eles
+topem...
+TOMÁS Nem pensar, tem que ter você. A gente sabe que
+a iniciativa foi tua.
+ZECA Engano seu, tudo partiu da Nina que ficou por
+lá.
+IVAN (Completando) E que não voltou porque deve
+estar com vergonha de encarar a gente depois de
+ter feito essa cagada toda.
+TOMÁS Mas afinal, Zeca, qual é o grilo?
+102
+ZECA Não tem grilo, Tomás. É que esse trabalho pra
+mim já acabou. Eu não tô a fim de reviver essa
+experiência. Ela já me serviu demais e foi boa
+paca pra minha cabeça. A tua idéia pode ser até
+boa - não vou julgar - mas tô mais a fim de
+fazer uma coisa nova. (para Tuca que está ao
+lado) Você tá a fim, Tuca?
+TUCA Não, obrigado. Quem gosta de passado é museu.
+(E beija, orgulhoso, uma gatinha com quem está
+enroscado).
+Salvador se intromete.
+SALVADOR Aqui, Tomás, vamos levar um papo?
+TOMÁS Sobre?
+SALVADOR Vem cá (Puxa Tomás) Eu ouvi esse teu papo com o
+Zeca. É o seguinte... Eu tô interessado.
+E vão andando.
+IVAN Bravo! Vou te fazer uma proposta bem mais
+interessante do que a do Tomás. Olha, tamos
+fazendo uma frente de resistência contra o
+fechamento do Esperança. Já temos mais de mil
+assinaturas e pretendemos ficar aqui em
+vigília ...
+ZECA E daí que tão fechando o Esperança? Ótimo! Deixa
+fechar. Isso aqui já deu o que tinha que dar.
+Agora vai começar outra história que a gente não
+sabe qual é, mas que tem que começar, Ivan. Acho
+ótimo que feche. Todos nós precisamos mudar.
+Agitar. Deixa chover, ôôô deixa a chuva
+molhar ... (e sai dançando).
+CORTA PARA Ana que ouviu a conversa entre Zeca e Ivan e agora olha
+para Zeca enternecida. Pensa um pouco e num repelão levanta-se e vai
+até ele. Senta-se ao lado dele que está conversando com Ivan e o
+Profeta. Quando ela chega os dois e o resto das pessoas em volta vão
+se retirando discretamente.
+ANA Estou feliz por você ter chegado.
+103
+ZECA Será? (Novelesco) Com um marido morto você
+poderia reconstruir sua vida ao lado do homem
+que ama ...
+ANA Brincadeira de mau gosto, Zeca. Afinal você é o
+pai dos meus filhos. Não quero que eles sejam
+órfãos, nunca.
+ZECA Falar nisso como é que eles estão?
+ANA Umas pestes como sempre.
+Zeca sorri.
+ZECA Já tão chamando seu namorado de pai?
+ANA Não tenho mais namorado...
+ZECA La donna è mobile ...
+ANA Não, não é isso não. É que eu meio desaprendi a
+namorar, tantos anos com você ... e essas
+amizades coloridas ... Não sei ... Na verdade,
+perdi o interesse. Não era a pessoa exata pra
+mim.
+ANA (Cuidadosa) E a Nina?
+ZECA Casou com um cacique (e ri).
+ANA (Também rindo) Mentira!
+ZECA Verdade. Mas não é bem assim, claro. O negócio
+é que pra você fazer alguma coisa pelos caras
+tem é que ficar lá mesmo. Acompanhar a vida
+deles. É como fazem os padres que estão lá,
+fazendo um trabalho genial. E além disso ela
+ficou paradona no cacique, isto é, juntou o
+útil ao agradável."
+Pausa. Os dois estão nessa "brincadeira" de amigos mas o clima vai
+ficando constrangedor. Os dois se olham, os olhares se encontram,
+riem, baixam a cabeça etc.
+104
+ANA E ZECA Eu queria ... (Acham graça porque falam ao
+mesmo tempo. Riem)
+ANA Fala!
+ZECA Não, fala você!
+ANA É ... sabe o que é? ... Bom ... Ih, andei
+fazendo cada besteira que você nem imagina ...
+ZECA Imagino sim. (Disfarçando) Por falar nisso,
+você já entregou aquela carta, Berenice?
+ANA (Rindo) Entreguei! Entreguei! Graças a Deus,
+tirei mil toneladas das minhas costas. Ufa, foi
+um alívio.
+ZECA E agora?
+ANA Não sei. (Pausa) E você?
+ZECA Também não sei.
+ANA Pois é, pena que o trabalho não deu certo.
+ZECA Não - deu certo sim! Ou melhor, não é pra dar
+certo.
+ANA (Rindo) Quer dizer que continuas o mesmo ...
+ZECA É que a gente raciocina em termos de uma coisa
+ou outra. É melhor raciocinar em termos de uma
+coisa e outra, ou seja, as coisas se somam, não
+se excluem. Tem que ter lugar pra erro e pra
+acerto. Se o que a gente faz é radical, pode
+ser bom porque as pessoas discutem o nosso
+radicalismo e assim elas mudam um pouco também.
+As pessoas discutem: "Ele tá errado mas eu
+também tô. Ela radicalizou demais mas eu tô
+parado demais" - Então não tem esse negócio de
+"dar certo". Não tem esse negócio de certo e
+errado. É tudo essa confusão toda mesmo. Ih, tô
+querendo ser inteligente demais. Vamos mudar de
+assunto?
+ANA (Pegando a mão de Zeca) Eu sou muito boba,
+Zeca?
+105
+ZECA (Rindo, apertando a mão dela) Um tanto ao
+quanto ...
+ANA Sabe qual é a impressão que eu tenho? De que
+você estacionou o carro na calçada e eu em vez
+de te cobrar uma multa te condenei à cadeira
+elétrica.
+CORTA PARA Ivan que comenta com Cabelinho a reconciliação apontando
+para os dois. Lá no fundo do bar alguém de porre começa a puxa a
+música "Bandeira Branca" já num começo de carnaval. Zeca e Ana ouvem,
+riem enternecidos. A música continua crescendo, vai virando um cordão
+no bar. O cordão se aproxima da mesa deles: "Bandeira Branca, amor/Não
+posso mais/Pela saudade que me invade eu peço paz/Saudade mal de amor,
+de amor/Saudade dor que dó demais/Vem meu amor/Bandeira Branca eu peço
+paz..." Eles se olhando nos olhos ignoram as pessoas em volta que já
+cercaram a mesa. Ele diz:
+ZECA Me dá um beijo?
+ANA É, acho que um beijo vai bem.
+Ana dá-lhe um beijo curto. Olham-se de novo. Abraçam-se, dão um longo
+beijo. O cordão de "Bandeira Branca" vai levando-os junto. Eles saem
+abraçados, agora também cantando. Nesse cordão vão saindo todas as
+pessoas do bar.
+CORTA PARA o lado de fora - cada pessoa que vem saindo é fotografada
+pelo Galocha. (Isso pode dar um efeito de stop motion na tela
+apresentando os nomes dos atores e cada um que vai aparecendo). Quando
+já estão todos na rua cantando
+CORTA PARA o interior do bar vazio e silencioso. Essa imagem de
+silêncio será alterada com a cena ruidosa da rua numa montagem
+intermitente. Lá fora as pessoas andando pela rua e ainda cantando vão
+mostrando os souvernirs do bar que cada um descolou: Ana ficou com o
+disco do Willie Nelson, Ivan com um cinzeiro enorme, o Passarinho
+ganhou a gravata borboleta do Prepúcio, Cotinha enverga uma faixa onde
+se lê "Vênus do Esperança", o Profeta com uma válvula de puxar
+descarga, Tuca com um quadro etc (coisas que caracterizam o bar). De
+repente a multidão avista um outro bar que se chama: "Continuação - O
+Primeiro que Abre" - pois o dia está nascendo. A maioria entra nele,
+outros se dispersam pela rua e o Galocha está perguntando a todo mundo
+se quer comprar o cartão que ele tem na mão. Ninguém dá bola pra ele,
+até que ele se decide:
+106
+GALOCHA Bom, se ninguém quer comprar...
+E joga o cartão pra cima. A câmera acompanha o vôo do cartão que numa
+trucagem vai se fixar no meio da tela. Nele está escrito a palavra
+FIM.
+.......................
+107
+
 `).then(e => console.log(`Código finalizado, ${e} mensagens enviadas`)).catch(console.error)
